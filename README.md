@@ -63,7 +63,7 @@ I’m against anyone in our community who opposes our trans sisters. I am agains
 I’m not interested in transmed stuff neither. 
 
 
-ꗞ — I’m no interested in any online argument such as proshippers/darkshippers vs antishippers. 
+ꗞ — I’m no interested in any online argument such as proshippers/darkshippers vs antishippers. It’s getting real annoying and I’ve heard this for over 20 times. 
 
 ꗞ — Whats the point of terms?
 It may not help, but i will try. 
