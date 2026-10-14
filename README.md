@@ -26,7 +26,7 @@ $${\color{#008000} IƬƧ \ MΣ \ ƬΉΣ \ ЯΣΛᄂ \ ΉΛᄂ \ JꗞЯDΛП/j}$$
  ⠀ 𐂂⠀- other names I love; Aster, Azrael, Thorne, or Ghoul!
     
     
-⠀⠀ ⠀ ⠀ ⠀⠀𐂂⠀ --⠀pronouns we prefer ; it / its or they / them .
+⠀⠀ ⠀ ⠀ ⠀⠀𐂂⠀ --⠀pronouns I prefer ; it / its or they / them .
       ⠀ 
       
  ⠀𐂂⠀ -- Biracial ! (black n brown ) . Puerto Rico ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ 
