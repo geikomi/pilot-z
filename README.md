@@ -59,7 +59,7 @@ __________
 
  
  <details>                     
-<summary>BEFORE YOU INTERACT!(You do not have to read all of them.)Be warned.. I yap a lot. !</summary>
+<summary>BEFORE YOU INTERACT![ You do not have to read all of them. ] Be warned.. I yap a lot. !</summary>
 
 
 ꗞ — Im aware that I am a weirdo.
