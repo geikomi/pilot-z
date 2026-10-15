@@ -36,7 +36,7 @@ $${\color{#008000} POWER \ OF \ FRIENDSHIP \ ! \ }$$
       
 
 <img src="https://github.com/pilot-z/pilot-z/blob/9b62aeb626a25b2f93cf99f4365c7057eada31db/IMG_5337.jpeg" width="9%"> ⠀𐂂⠀ -- Biracial ! (black n brown ) . Puerto Rico ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ 
-⠀ ⠀  ⠀⠀      ⠀⠀⠀        ⠀  ⠀⠀      ⠀⠀⠀    ⠀⠀⠀⠀  ⠀⠀⠀  ⠀⠀⠀     ⠀   ⠀⠀      ⠀⠀⠀   ⠀⠀⠀<img src="https://github.com/bat-z/bat-z/blob/ffd01c67dd35cce9092d6eda8fc0ef5161f941bc/IMG_6034.jpeg" width="10%"><img src="https://github.com/bat-z/bat-z/blob/fadb932297e5acfcbb8275a0a374afdb1804c8a0/IMG_6038.jpeg" width="10%"><img src="https://github.com/bat-z/bat-z/blob/37157dec572a85af58c121e0f3e9849e3e73a914/IMG_6039.jpeg" width="10%"><img src="https://github.com/bat-z/bat-z/blob/686d9b625c107b7db06e1e673eeb7c3c7949e366/IMG_6047.jpeg" width="10%"> ⠀⠀ ⠀ ⠀⠀ ⠀ 
+⠀ ⠀  ⠀⠀      ⠀⠀⠀        ⠀  ⠀⠀      ⠀⠀⠀     ⠀⠀⠀  ⠀⠀⠀     ⠀   ⠀⠀      ⠀⠀⠀   ⠀⠀⠀<img src="https://github.com/bat-z/bat-z/blob/ffd01c67dd35cce9092d6eda8fc0ef5161f941bc/IMG_6034.jpeg" width="10%"><img src="https://github.com/bat-z/bat-z/blob/fadb932297e5acfcbb8275a0a374afdb1804c8a0/IMG_6038.jpeg" width="10%"><img src="https://github.com/bat-z/bat-z/blob/37157dec572a85af58c121e0f3e9849e3e73a914/IMG_6039.jpeg" width="10%"><img src="https://github.com/bat-z/bat-z/blob/686d9b625c107b7db06e1e673eeb7c3c7949e366/IMG_6047.jpeg" width="10%"> ⠀⠀ ⠀ ⠀⠀ ⠀ 
 
  ⠀ ⠀⠀ꗞ⠀—  ⠀my wife ok<img src="https://github.com/bat-z/bat-z/blob/937cb482e5424c9f26ac785be7c556931907792f/Untitled312_20260804234048.png" width="30%">
 
