@@ -28,7 +28,8 @@ $${\color{#008000} POWER \ OF \ FRIENDSHIP \ ! \ }$$
 __________
 
 
- ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ 𐂂 - Greetings, you can call me Hal / Harold or other names like Rae or Sol. I am fine with nicknames and kin names.
+
+ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ 𐂂 - Greetings, you can call me Hal / Harold or other names like Rae or Sol. I am fine with nicknames and kin names.
  
  ⠀ 𐂂⠀- other names I love; Aster, Azrael, Thorne, or Ghoul!
     
