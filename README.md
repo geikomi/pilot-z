@@ -20,9 +20,7 @@ $${\color{#008000} IƬƧ \ MΣ \ ƬΉΣ \ ЯΣΛᄂ \ ΉΛᄂ \ JꗞЯDΛП/j}$$
 ⠀ ⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀
 
 
-<img src="https://github.com/pilot-z/pilot-z/blob/89866ae92d498dd4e727d1342553cf5a627313de/IMG_5328.jpeg" width="30%">
-<img src="https://github.com/pilot-z/pilot-z/blob/2a529d97a74147e924dac3d60e4315a43530ba57/IMG_5334.jpeg" width="30%">
-<img src="https://github.com/pilot-z/pilot-z/blob/613051128a646de26c8e364389632595d987b7c2/IMG_5332.jpeg " width="30%"> 
+<img src="https://github.com/pilot-z/pilot-z/blob/89866ae92d498dd4e727d1342553cf5a627313de/IMG_5328.jpeg" width="30%"><img src="https://github.com/pilot-z/pilot-z/blob/2a529d97a74147e924dac3d60e4315a43530ba57/IMG_5334.jpeg" width="30%"><img src="https://github.com/pilot-z/pilot-z/blob/613051128a646de26c8e364389632595d987b7c2/IMG_5332.jpeg" width="30%"> 
 ⠀ ⠀ ⠀
 
 $${\color{#008000} POWER \ OF \ FRIENDSHIP \ ! \ }$$
