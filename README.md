@@ -4,6 +4,8 @@
 Not looking for friends in ponytown or discord. Again, yall still allow to int, C*H, or whisper me.
 
 $${\color{#008000} IƬƧ \ MΣ \ ƬΉΣ \ ЯΣΛᄂ \ ΉΛᄂ \ JꗞЯDΛП/j}$$
+
+
  
    ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ [ATABOOK](https://harold.atabook.org)  ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀  ⠀ 𐂂⠀-- ⠀ 
 
@@ -18,8 +20,11 @@ $${\color{#008000} IƬƧ \ MΣ \ ƬΉΣ \ ЯΣΛᄂ \ ΉΛᄂ \ JꗞЯDΛП/j}$$
 ⠀ ⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀
 
 
-<img src="https://github.com/bat-z/bat-z/blob/cdad4e7daca15e76301a91401c64ec732d9f3aaa/783844DD-6F1D-4FBD-B814-D6349ACB7E35.jpeg" width="40%"><img src="https://github.com/bat-z/StaticSh0ck/blob/94fab8e6e4d33cff882e482d776c3f81fd773029/914e5954b57ed5d26f282858805cf363.jpg" width="30%"><img src="https://github.com/bat-z/bat-z/blob/002c09f0350c8c0a5d8737d2b4b47f2392d52d0b/237699B5-F816-4797-917E-BA6E00FC5864.jpeg" width="30%"> 
+<img src="https://github.com/pilot-z/pilot-z/blob/89866ae92d498dd4e727d1342553cf5a627313de/IMG_5328.jpeg" width="30%"><img src=" https://github.com/pilot-z/pilot-z/blob/2a529d97a74147e924dac3d60e4315a43530ba57/IMG_5334.jpeg " width="30%"><img src="https://github.com/pilot-z/pilot-z/blob/613051128a646de26c8e364389632595d987b7c2/IMG_5332.jpeg " width="30%"> 
 ⠀ ⠀ ⠀
+
+$${\color{#008000} POWER \ OF \ FRIEND \ SHIP \ ! \ }$$
+
 
  ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ 𐂂 - Greetings, you can call me Hal / Harold or other names like Rae or Sol. I am fine with nicknames and kin names.
  
@@ -29,7 +34,8 @@ $${\color{#008000} IƬƧ \ MΣ \ ƬΉΣ \ ЯΣΛᄂ \ ΉΛᄂ \ JꗞЯDΛП/j}$$
 ⠀⠀ ⠀ ⠀ ⠀⠀𐂂⠀ --⠀pronouns I prefer ; it / its or they / them .
       ⠀ 
       
- ⠀𐂂⠀ -- Biracial ! (black n brown ) . Puerto Rico ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ 
+
+<img src="https://github.com/pilot-z/pilot-z/blob/9b62aeb626a25b2f93cf99f4365c7057eada31db/IMG_5337.jpeg" width="9%"> ⠀𐂂⠀ -- Biracial ! (black n brown ) . Puerto Rico ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ 
 ⠀ ⠀  ⠀⠀      ⠀⠀⠀        ⠀  ⠀⠀      ⠀⠀⠀    ⠀⠀⠀⠀  ⠀⠀⠀  ⠀⠀⠀     ⠀   ⠀⠀      ⠀⠀⠀   ⠀⠀⠀<img src="https://github.com/bat-z/bat-z/blob/ffd01c67dd35cce9092d6eda8fc0ef5161f941bc/IMG_6034.jpeg" width="10%"><img src="https://github.com/bat-z/bat-z/blob/fadb932297e5acfcbb8275a0a374afdb1804c8a0/IMG_6038.jpeg" width="10%"><img src="https://github.com/bat-z/bat-z/blob/37157dec572a85af58c121e0f3e9849e3e73a914/IMG_6039.jpeg" width="10%"><img src="https://github.com/bat-z/bat-z/blob/686d9b625c107b7db06e1e673eeb7c3c7949e366/IMG_6047.jpeg" width="10%"> ⠀⠀ ⠀ ⠀⠀ ⠀ 
 
  ⠀ ⠀⠀ꗞ⠀—  ⠀my wife ok<img src="https://github.com/bat-z/bat-z/blob/937cb482e5424c9f26ac785be7c556931907792f/Untitled312_20260804234048.png" width="30%">
@@ -366,7 +372,5 @@ Not going to list others. I'm going to block whoever I want. I block freely! If 
    
 </details>
 
-<img src="https://github.com/bat-z/bat-z/blob/8969fed5202b7ad3e43f5625f4155c5cc0b0cb0a/IMG_1379.gif" width="80%">
+<img src="https://github.com/pilot-z/pilot-z/blob/122b2e1519a03feef29516d50f4d426d37095907/34572EB2-4C06-4867-BCD1-48FCDED4DD6F.gif" width="20%">
 
-
-<img src="https://github.com/bat-z/bat-z/blob/db593743f20395762a6155e74a6c6c89d94c307e/IMG_8507.jpeg" width="90%">
