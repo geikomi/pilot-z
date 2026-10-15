@@ -25,6 +25,8 @@ $${\color{#008000} IƬƧ \ MΣ \ ƬΉΣ \ ЯΣΛᄂ \ ΉΛᄂ \ JꗞЯDΛП/j}$$
 
 $${\color{#008000} POWER \ OF \ FRIENDSHIP \ ! \ }$$
 
+__________
+
 
  ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ 𐂂 - Greetings, you can call me Hal / Harold or other names like Rae or Sol. I am fine with nicknames and kin names.
  
