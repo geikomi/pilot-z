@@ -383,7 +383,7 @@ ______________
 
 
 
-<img src="https://github.com/pilot-z/pilot-z/blob/a3bb073ce75b06ceb414e8caffc5ed1e6cc001aa/IMG_5380.jpeg" width="90%">
+<img src="https://github.com/pilot-z/pilot-z/blob/a3bb073ce75b06ceb414e8caffc5ed1e6cc001aa/IMG_5380.jpeg" width="30%"><img src="https://github.com/pilot-z/pilot-z/blob/44e2d325e43ddb84dffc4e233fa3539ad2925b2d/IMG_5381.jpeg" width="30%">
 
 
 ____________
