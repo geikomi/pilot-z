@@ -1,8 +1,7 @@
 ⠀ ⠀ ⠀⠀⠀ ⠀ ⠀⠀ ⠀  ⠀ <img src="https://komarev.com/ghpvc/?username=USERNAME&label=𐂯&color=green">
 
 
-Looking for friends whos 18 and oldr…
-17 yesrs old IWC.
+uhhhh Looking for cool alterhuman friends whos 18 and oldr… 17 yrd is alright.
 I’m fine with C*H, or whisper me.
 
 $${\color{#008000} IƬƧ \ MΣ \ ƬΉΣ \ ЯΣΛᄂ \ ΉΛᄂ \ JꗞЯDΛП/j}$$
