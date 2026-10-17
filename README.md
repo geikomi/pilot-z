@@ -1,6 +1,15 @@
 ⠀ ⠀ ⠀⠀⠀ ⠀ ⠀⠀ ⠀  ⠀ <img src="https://komarev.com/ghpvc/?username=USERNAME&label=𐂯&color=green">
 
 
+
+
+
+
+[Waiting4Zome1.] whispers: ew
+[Waiting4Zome1.] whispers: keyz
+
+
+_________
 uhhhh Looking for cool alterhuman older friends whos 18 and oldr… 17 yr and 16 is alright.
 I’m fine with C*H, or whisper me.
 
