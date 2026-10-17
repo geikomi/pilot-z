@@ -63,6 +63,9 @@ __________
 <summary>BEFORE YOU INTERACT![ You do not have to read all of them. ] Be warned.. I yap a lot. !</summary>
 
 
+
+If i sound rude please let me know!
+
 ꗞ — Im aware that I am a weirdo.
 If you think I've taken things too far by using microlabels, xenogenders, alterhuman, etc. Feel free to not int, or block me if you are uncomfortable with my existence or our community. 
 
