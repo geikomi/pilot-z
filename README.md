@@ -76,6 +76,9 @@ If you think I've taken things too far by using microlabels, xenogenders, alterh
 
 I am a good-faith identity, that means I support not policing or excluding harmless identities, even those that are difficult to understand part of the community.
 
+
+i am mentally ill, please iwc. 👍
+
 I don't tolerate xenophobic or racism. That includes having an entire group on your list. I refuse to talk with anyone who adds black ppl or different groups in their list. I don't feel safe around people like that.
 
 I’m against anyone in our community who opposes our trans sisters. I am against misgendering[even against those who claimed they support xeno/neopronouns] in our community. Just because someone upsets you or is “problematic” , that doesn't give you an excuse to be transphobic, even if you are a queer cis person, trans man, nonbinary, etc. 
@@ -348,6 +351,10 @@ Animal hospital
 
  <details>
 <summary>DISLIKES !</summary>
+
+
+Drama. Do not drag me into one. I’ll also not going check "call-out" posts. I find callout posts stupid and I don’t understand why ppl so obsessed.
+
 
 
 DC New 52. I don’t care if ppl liked it. We have different opinions 
