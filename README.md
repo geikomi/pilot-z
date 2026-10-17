@@ -66,6 +66,10 @@ __________
 
 If i sound rude please let me know!
 
+
+ I have no problem with anyone talking about ships that involves my kintypes or my yumes, like rarepairs, crossover or anything like that. as long as yall don’t force it on me. I’m fine with ppl bringing about some ships I dislikes.
+
+ 
 ꗞ — Im aware that I am a weirdo.
 If you think I've taken things too far by using microlabels, xenogenders, alterhuman, etc. Feel free to not int, or block me if you are uncomfortable with my existence or our community. 
 
@@ -77,7 +81,7 @@ I’m against anyone in our community who opposes our trans sisters. I am agains
 I’m not interested in transmed stuff neither. 
 
 
-ꗞ — I’m no interested in any online argument such as proshippers/darkshippers vs antishippers. It’s getting real annoying and I’ve heard this for over 20 times. 
+ꗞ — I’m no interested in any online argument such as proshippers/darkshippers vs antishippers. It’s getting real annoying and I’ve heard this for over 20 times. I don’t mind with them int or befriend me.
 
 ꗞ — Whats the point of terms?
 It may not help, but i will try. 
@@ -347,6 +351,10 @@ Animal hospital
 
 DC New 52. I don’t care if ppl liked it. We have different opinions 
 
+“Basic DNI” This phase gets on my nerves. What does that means? 
+
+ Making fun of mental health terms. Like triggers or anything
+
  
 People who have problems with friends, unless they have done something uncomfortable/upset someone.
 
@@ -356,7 +364,7 @@ People who have problems with friends, unless they have done something uncomfort
  <details>
 <summary>THIN ICES. NOT A DNI!</summary>
 
-Invincible , Muppets , Jason Todd/Batfam fans and Eddsworld fans unless friends.
+Invincible , Jason Todd/Batfam fans and Eddsworld fans unless friends.
 
  Supernatural IWVEC/or don’t mention unless friends. 
 
@@ -368,10 +376,17 @@ yumeshippers users(Only in ponytown and TikTok) unless we friends
 <details>
 <summary>I WONT BEFRIEND/WILL BLOCK !</summary>
   
+Those who break their own boundaries. "Dni"
+
 
  ccherrypie/j-pawss. Hoping he’s not around 
 
  My friend’s ex friends especially ex partners[Only the ppl who hurt them]
+
+ppl who has " system & did " in their dni list. Even obsessed of fakeclaiming or making fun of systems. Don’t give me excuses.
+
+Ppl who has same name as my former friends. I feel petty sorry😞
+
 
  Ppl who seek drama and those who do not know how to apologize properly or take responsibility for their actions.
 
