@@ -1,7 +1,7 @@
 ⠀ ⠀ ⠀⠀⠀ ⠀ ⠀⠀ ⠀  ⠀ <img src="https://komarev.com/ghpvc/?username=USERNAME&label=𐂯&color=green">
 
 
-uhhhh Looking for cool alterhuman friends whos 18 and oldr… 17 yr and 16 is alright.
+uhhhh Looking for cool alterhuman older friends whos 18 and oldr… 17 yr and 16 is alright.
 I’m fine with C*H, or whisper me.
 
 $${\color{#008000} IƬƧ \ MΣ \ ƬΉΣ \ ЯΣΛᄂ \ ΉΛᄂ \ JꗞЯDΛП/j}$$
