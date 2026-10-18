@@ -361,7 +361,7 @@ Animal hospital
 <summary>DISLIKES !</summary>
 
 
-Drama. Do not drag me into one. I’ll also not going check "call-out" posts. I find callout posts stupid and I don’t understand why ppl(mostly Gen-Z) so obsessed. While I get exposing bad behavior its important, since media figures aren't always good people. Most callout posts are just bullshit.  I expect some of them to be bad, but these posts usually focus on stupid things and are just a bunch of gossip. Or  just them arguing over some disagreement 
+Drama. Do not drag me into one. I’ll also not going check "call-out" posts. I find callout posts stupid and pointless. I don’t understand why ppl(mostly Gen-Z) so obsessed with em. While I do understand exposing bad behavior is important, since media figures aren't always good people. Most callout posts are just bullshit.  I expect some of them to be bad, but these posts usually focus on stupid things and are just a bunch of gossip. Or  just them arguing over some disagreement, etc.
 
 
 
