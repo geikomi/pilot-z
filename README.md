@@ -88,7 +88,7 @@ If you think I've taken things too far by using microlabels, xenogenders, alterh
 I am a good-faith identity, that means I support not policing or excluding harmless identities, even those that are difficult to understand part of the community.
 
 
-i am mentally ill, please iwc. 👍
+i am mentally ill, please iwc unless we close. 👍. i’m known to have Paranoid and anxiety. Telling me get off internet wouldn’t magically heal my health😭
 
 I don't tolerate xenophobic or racism. That includes having an entire group on your list. I refuse to talk with anyone who adds black ppl or different groups in their list. I don't feel safe around people like that.
 
