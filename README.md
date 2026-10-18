@@ -267,8 +267,11 @@ caiman lizards
 
 
 <details>
-<summary>what are your interests?</summary>
+<summary>what are your interests / what do you likes ?</summary>
 
+
+
+—- Sometimes I  like to crown ppl in whispers 
 
 — I’m obsessed with paleontology, space, science, biology, histroy + others!
 
