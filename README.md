@@ -376,7 +376,7 @@ Drama. Do not drag me into one. I’ll also not going check "call-out" posts. I 
 
 
 
- Ppl who seek drama. People who actively look for drama. well as those who do not know how to apologize properly or take responsibility for their actions.
+  Seek drama. Like ppl who actively look to start drama. well as those who do not know how to apologize properly or take responsibility for their actions.
 
 
 folks who think they’re better than anyone else. 🤔🤔🤔
@@ -416,7 +416,7 @@ Those who break their own boundaries. "Dni"
 
  My friend’s ex friends especially ex partners[Only the ppl who hurt them]
 
-ppl who has " system & did " in their dni list. Even obsessed of fakeclaiming or making fun of systems. Don’t give me excuses.😭
+ppl who has " system & did " in their dni list. Even obsessed of fakeclaiming or making fun of systems. Don’t give me excuses.😭 
 
 Ppl who has same name as my former friends. I feel petty sorry😞
 
