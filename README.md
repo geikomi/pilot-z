@@ -5,8 +5,7 @@
 
 
 
-[Waiting4Zome1.] whispers: ew
-[Waiting4Zome1.] whispers: keyz
+
 
 
 _________
@@ -426,4 +425,12 @@ ____________
 
 
 <img src="https://github.com/pilot-z/pilot-z/blob/122b2e1519a03feef29516d50f4d426d37095907/34572EB2-4C06-4867-BCD1-48FCDED4DD6F.gif" width="90%">
+
+
+
+_________
+
+[Waiting4Zome1.] whispers: ew
+[Waiting4Zome1.] whispers: keyz
+
 
