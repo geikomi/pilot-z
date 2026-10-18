@@ -364,7 +364,7 @@ Animal hospital
 </details>
 
  <details>
-<summary>DISLIKES / WILL IGNORE !</summary>
+<summary>DISLIKES !</summary>
 
 
 [ Our boundaries may be ridiculous. ]
@@ -376,12 +376,10 @@ Drama. Do not drag me into one. I’ll also not going check "call-out" posts. I 
 
 
 
- Ppl who seek drama. People who actively look for drama. those who do not know how to apologize properly or take responsibility for their actions.
+ Ppl who seek drama. People who actively look for drama. well as those who do not know how to apologize properly or take responsibility for their actions.
 
 
-
-folks who think they’re better than anyone else. & hypocrisy assholes. 
-[Though maybe I'm one myself, I think.🤔🤔🤔🤔]
+folks who think they’re better than anyone else. 🤔🤔🤔
 
 
 DC New 52. I don’t care if ppl liked it. We have different opinions 
