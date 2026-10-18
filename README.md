@@ -393,7 +393,7 @@ yumeshippers users(Only in ponytown and TikTok) unless we friends
 </details>
 
 <details>
-<summary>I WONT BEFRIEND/WILL BLOCK !</summary>
+<summary>I WONT BEFRIEND/WILL BLOCK/IGNORE !</summary>
   
 Those who break their own boundaries. "Dni"
 
