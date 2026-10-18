@@ -21,7 +21,10 @@ $${\color{#008000} IƬƧ \ MΣ \ ƬΉΣ \ ЯΣΛᄂ \ ΉΛᄂ \ JꗞЯDΛП/j}$$
 
 
  ⠀  ⠀ ⠀   [ABOUT ME](https://idkmaybeintro.straw.page)
-⠀ ⠀ ⠀⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ 
+⠀ ⠀ ⠀⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀
+
+
+[MICROLABELS & MORE](https://pronouns.cc/@.1batz)⠀⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ 
 
 
 
@@ -361,11 +364,20 @@ Animal hospital
 </details>
 
  <details>
-<summary>DISLIKES !</summary>
+<summary>DISLIKES / WILL IGNORE !</summary>
+
 
 
 Drama. Do not drag me into one. I’ll also not going check "call-out" posts. I find callout posts stupid and pointless. While I do understand exposing bad behavior is important, since media figures aren't always good people. Most callout posts are just bullshit.  I expect some of them to be bad, but these posts usually focus on stupid things and are just a bunch of gossip. Or  just them arguing over some disagreement, etc.
 
+
+
+
+ Ppl who seek drama and those who do not know how to apologize properly or take responsibility for their actions.
+
+
+
+folks who think they’re better than anyone else. & hypocrisy assholes
 
 
 DC New 52. I don’t care if ppl liked it. We have different opinions 
@@ -407,7 +419,7 @@ ppl who has " system & did " in their dni list. Even obsessed of fakeclaiming or
 Ppl who has same name as my former friends. I feel petty sorry😞
 
 
- Ppl who seek drama and those who do not know how to apologize properly or take responsibility for their actions.
+
 
  No fandom DNI  
 
