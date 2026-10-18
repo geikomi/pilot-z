@@ -71,7 +71,7 @@ __________
 
  
  <details>                     
-<summary>BEFORE YOU INTERACT![ You do not have to read all of them. ] Be warned.. I yap a lot. !</summary>
+<summary>BEFORE YOU INTERACT![ You do not have to read all of them since its a lot. ] Be warned.. I yap a lot. !</summary>
 
 
 
@@ -81,6 +81,8 @@ __________
 
 — I am mentally ill, please iwc unless we close. 👍. i’m known to have Paranoid and anxiety disorder EVEN in real life. Telling me get off internet wouldn’t magically heal my health😭
 
+
+— I'm not very good at responding to people, so please don't take it personally I never learned how to socialize as a child, and I find it difficult to hold a conversation.
 
 —- I have no problem with anyone talking about ships that involves my kintypes or my yumes, like rarepairs, crossover or anything like that. as long as yall don’t force it on me. I’m fine with ppl bringing about some ships I dislikes.
 
@@ -130,10 +132,15 @@ I know I shouldn't care at all, but I’ve realized that several people have blo
 My main problems are basic spelling, poor grammar, counting, and list goes on... 
 Please don’t be upset with me
 
+—- I take my interests very seriously; what I mean is that I don't like hearing people talking bad my comfort characters in front of me. Such as Stan marsh, Kyle , Booster Gold, Wonderwoman, Hal jordan, Damian Wayne, Arin, Jon, or some more.( Ras n Guy don’t count ) I have no problem with others not liking them or talk about they dislike them for reasons, but I don't need to hear how much they hated them, nor do I need them spreading bullshit about them 24/7. Keep it to yourselves.
 
 
+If you make me uncomfortable, it might take some time to explain it to you. I am not great at confronting others due to past traumas
 
-— I am an overthinker. I worried/care about my friends and the people I interact with, and I try to be on their good side.
+➤ I have trouble with reading tones be careful with sarcasm! I'm not a big fan of tonetags, but I don't mind people using them! Just dont overuse them
+
+
+— I get attached very easily and I am an overthinker. I worried/care about my friends and the people I interact with, and I try to be on their good side.
 I apologize very often, and I also find it hard to say no or set boundaries for myself.
 
   — I struggle with social cues. Sometimes I don't think before I speak. If I ever say something incorrect or something that could be offensive in any way, tell me! I will correct myself and then apologize. Don't be afraid to point it out to me as I said, I’m not afraid of my own mistakes 
@@ -371,6 +378,9 @@ Animal hospital
 
 [ Our boundaries may be ridiculous. ]
 
+
+
+I don't really like large crowds. Also, if it's a large group, I usually walk away.
 
 
 Drama. Do not drag me into one. I’ll also not going check "call-out" posts. I find call-out posts stupid and pointless. While I understand that exposing genuinely bad behavior is important since public figures aren't always good people, most call-out posts are just absolute bullshit. I already expect some people to be bad, but these posts usually focus on stupid things and just turn into a bunch of petty gossip or people arguing over a minor disagreement, etc, etc. "Do not harass this person." while showing their username and everything is just a poor excuses.
