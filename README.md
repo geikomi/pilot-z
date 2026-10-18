@@ -36,7 +36,7 @@ $${\color{#008000} IƬƧ \ MΣ \ ƬΉΣ \ ЯΣΛᄂ \ ΉΛᄂ \ JꗞЯDΛП/j}$$
 ⠀ ⠀ ⠀
 
 $${\color{#008000} POWER \ OF \ FRIENDSHIP \ ! \ }$$
-$${\color{#F2A67B} ME \ AS \ STAN \ AND \ ERIK \ AS \ KYLE \ ! !  }$$
+$${\color{#F2A67B}  ૮ ˶ᵔ ᵕ ᵔ˶ ა \ ME \ AS \ STAN \ AND \ ERIK \ AS \ KYLE \ ! !  }$$
 
 
 
