@@ -371,7 +371,7 @@ Animal hospital
 
 
 
-Drama. Do not drag me into one. I’ll also not going check "call-out" posts. I find call-out posts stupid and pointless. While I understand that exposing genuinely bad behavior is important since public figures aren't always good people, most call-out posts are just absolute bullshit. I already expect some people to be bad, but these posts usually focus on stupid things and just turn into a bunch of petty gossip or people arguing over a minor disagreement, etc, etc.
+Drama. Do not drag me into one. I’ll also not going check "call-out" posts. I find call-out posts stupid and pointless. While I understand that exposing genuinely bad behavior is important since public figures aren't always good people, most call-out posts are just absolute bullshit. I already expect some people to be bad, but these posts usually focus on stupid things and just turn into a bunch of petty gossip or people arguing over a minor disagreement, etc, etc. "Do not harass this person." while showing their username and everything is just a poor excuses.
 
 
 
