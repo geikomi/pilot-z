@@ -267,7 +267,7 @@ caiman lizards
 
 
 <details>
-<summary>what are your interests / what do you likes ?</summary>
+<summary>what are your interests / what do you likes / INT ?</summary>
 
 
 
@@ -278,6 +278,7 @@ caiman lizards
 
 -- cooking/baking! I also like cooking & baking shows
 
+—- Cringe ppl pls int
 
 -- Fav youtubers; Kwite, PolarCub, Kaden, Flamingo, & Funneh I still watch them
 
