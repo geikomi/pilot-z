@@ -377,7 +377,8 @@ Drama. Do not drag me into one. I’ll also not going check "call-out" posts. I 
 
 
 
-folks who think they’re better than anyone else. & hypocrisy assholes
+folks who think they’re better than anyone else. & hypocrisy assholes. 
+Maybe I’m one myself I think🤔🤔🤔
 
 
 DC New 52. I don’t care if ppl liked it. We have different opinions 
