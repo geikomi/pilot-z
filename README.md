@@ -367,18 +367,21 @@ Animal hospital
 <summary>DISLIKES / WILL IGNORE !</summary>
 
 
-
-Drama. Do not drag me into one. I’ll also not going check "call-out" posts. I find callout posts stupid and pointless. While I do understand exposing bad behavior is important, since media figures aren't always good people. Most callout posts are just bullshit.  I expect some of them to be bad, but these posts usually focus on stupid things and are just a bunch of gossip. Or  just them arguing over some disagreement, etc.
-
+[ Our boundaries may be ridiculous. ]
 
 
 
- Ppl who seek drama and those who do not know how to apologize properly or take responsibility for their actions.
+Drama. Do not drag me into one. I’ll also not going check "call-out" posts. I find call-out posts stupid and pointless. While I understand that exposing genuinely bad behavior is important since public figures aren't always good people, most call-out posts are just absolute bullshit. I already expect some people to be bad, but these posts usually focus on stupid things and just turn into a bunch of petty gossip or people arguing over a minor disagreement, etc, etc.
+
+
+
+
+ Ppl who seek drama. People who actively look for drama. those who do not know how to apologize properly or take responsibility for their actions.
 
 
 
 folks who think they’re better than anyone else. & hypocrisy assholes. 
-Maybe I’m one myself I think🤔🤔🤔
+[Though maybe I'm one myself, I think.🤔🤔🤔🤔]
 
 
 DC New 52. I don’t care if ppl liked it. We have different opinions 
