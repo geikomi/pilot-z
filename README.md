@@ -86,6 +86,9 @@ __________
 
 —- I have no problem with anyone talking about ships that involves my kintypes or my yumes, like rarepairs, crossover or anything like that. as long as yall don’t force it on me. I’m fine with ppl bringing about some ships I dislikes.
 
+
+— I tend to repeat words
+
  
 ꗞ — Im aware that I am a weirdo.
 If you think I've taken things too far by using microlabels, xenogenders, alterhuman, etc. Feel free to not int, or block me if you are uncomfortable with my existence or our community. 
