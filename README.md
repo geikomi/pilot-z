@@ -169,7 +169,10 @@ __________
  <details>
 <summary>MAIN KINTYPES</summary>
 
-  I'm aware I don't own the characters🫡
+ I'm aware I don't own the characters🫡
+
+
+fictotypes ;
 
   I really don talk about kintypes much so here are the list.
 
