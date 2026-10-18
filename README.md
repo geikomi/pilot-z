@@ -76,10 +76,13 @@ __________
 
 
 
-If i sound rude please let me know!
+— If i sound rude please let me know!
 
 
- I have no problem with anyone talking about ships that involves my kintypes or my yumes, like rarepairs, crossover or anything like that. as long as yall don’t force it on me. I’m fine with ppl bringing about some ships I dislikes.
+— I am mentally ill, please iwc unless we close. 👍. i’m known to have Paranoid and anxiety disorder EVEN in real life. Telling me get off internet wouldn’t magically heal my health😭
+
+
+—- I have no problem with anyone talking about ships that involves my kintypes or my yumes, like rarepairs, crossover or anything like that. as long as yall don’t force it on me. I’m fine with ppl bringing about some ships I dislikes.
 
  
 ꗞ — Im aware that I am a weirdo.
@@ -88,7 +91,6 @@ If you think I've taken things too far by using microlabels, xenogenders, alterh
 I am a good-faith identity, that means I support not policing or excluding harmless identities, even those that are difficult to understand part of the community.
 
 
-i am mentally ill, please iwc unless we close. 👍. i’m known to have Paranoid and anxiety disorder EVEN in real life. Telling me get off internet wouldn’t magically heal my health😭
 
 I don't tolerate xenophobic or racism. That includes having an entire group on your list. I refuse to talk with anyone who adds black ppl or different groups in their list. I don't feel safe around people like that.
 
