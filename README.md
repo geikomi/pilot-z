@@ -387,7 +387,7 @@ Invincible , Jason Todd/Batfam fans and Eddsworld fans unless friends.
 
  Supernatural IWVEC/or don’t mention unless friends. 
 
-yumeshippers users(Only in ponytown and TikTok) unless we friends
+yumeshippers of my highest kintypes unless we friends
 
 
 </details>
