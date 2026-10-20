@@ -441,7 +441,7 @@ Those who break their own boundaries. "Dni"
 
  My friend’s ex friends especially ex partners[Only the ppl who hurt them]
 
-ppl who has " system & did " in their dni list. Even obsessed of fakeclaiming or making fun of systems. Don’t give me excuses.😭 
+ppl who has " plural,system & did " in their dni list. Even obsessed of fakeclaiming or making fun of systems. Don’t give me excuses.😭 
 
 Ppl who has same name as my former friends. I feel petty sorry😞
 
