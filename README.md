@@ -106,7 +106,7 @@ I’m against anyone in our community who opposes our trans sisters. I am agains
 I’m not interested in transmed stuff neither. 
 
 
-ꗞ — I’m no interested in any online argument such as proshippers/darkshippers vs antishippers. It’s getting real annoying and I’ve heard this for over 20 times. 
+ 
 
 ꗞ — Whats the point of terms?
 It may not help, but i will try. 
@@ -392,13 +392,12 @@ Animal hospital
 
 I don't really like large crowds. Also, if it's a large group, I usually walk away.
 
-
-Drama. Do not drag me into one. I’ll also not going check "call-out" posts. I find call-out posts stupid and pointless. While I understand that exposing genuinely bad behavior is important since public figures aren't always good people, most call-out posts are just absolute bullshit. I already expect some people to be bad, but these posts usually focus on stupid things and just turn into a bunch of petty gossip or people arguing over a minor disagreement, etc, etc. "Do not harass this person." while showing their username and everything is just a poor excuses.
-
+ship discourse
 
 
+ꗞ —  Drama. I’m no interested in any online argument. Do not drag me into one. I’ll also not going check "call-out" posts. I find call-out posts stupid and pointless. While I understand that exposing genuinely bad behavior is important since public figures aren't always good people, most call-out posts are just absolute bullshit. I already expect some people to be bad, but these posts usually focus on stupid things and just turn into a bunch of petty gossip or people arguing over a minor disagreement, etc, etc. "Do not harass this person." while showing their username and everything is just a poor excuses.
 
-  Seek drama. Like ppl who actively look to start drama. well as those who do not know how to apologize properly or take responsibility for their actions.
+
 
 
 folks who think they’re better than anyone else. 🤔🤔🤔
@@ -408,7 +407,11 @@ DC New 52. I don’t care if ppl liked it. We have different opinions
 
 “Basic DNI” This phase gets on my nerves. What does that means? 
 
- Making fun of mental health terms. Like triggers or anything
+
+Seek drama. Like ppl who actively look to start drama. well as those who do not know how to apologize properly or take responsibility for their actions.
+
+
+ Making fun of mental health terms. Like triggers, or anything. That includes systems 
 
  
 People who have problems with friends, unless they have done something uncomfortable/upset someone.
