@@ -422,7 +422,7 @@ People who have problems with friends, unless they have done something uncomfort
  <details>
 <summary>THIN ICES. NOT A DNI!</summary>
 
-Invincible , Jason Todd/Batfam fans and Eddsworld fans unless friends.
+Invincible , Craig fans, Jason Todd/Batfam fans and Eddsworld fans unless friends.
 
  Supernatural IWVEC/or don’t mention unless friends. 
 
