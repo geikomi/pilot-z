@@ -444,7 +444,7 @@ Those who break their own boundaries. "Dni"
 
  ccherrypie/j-pawss. Hoping he’s not around 
 
- My friend’s ex friends especially ex partners[Only the ppl who hurt them]
+ My friend’s ex friends especially ex partners
 
 ppl who has "systems " in their dni list. Even obsessed of fakeclaiming or making fun of them. Don’t give me excuses.😭 
 
