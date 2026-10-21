@@ -90,7 +90,7 @@ __________
 
 — I am mentally ill, please iwc unless we close. 👍. i’m known to have Paranoid and anxiety disorder EVEN in real life. Telling me get off internet wouldn’t magically heal my health😭
 
-—- I'm pretty open-minded, so my perspective changes from time to time.
+—- I'm pretty open-minded, so my thoughts changes from time to time.
 
 
 — I'm not very good at responding to people, so please don't take it personally I never learned how to socialize as a child, and I find it difficult to hold a conversation.
