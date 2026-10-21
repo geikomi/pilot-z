@@ -90,8 +90,13 @@ __________
 
 — I am mentally ill, please iwc unless we close. 👍. i’m known to have Paranoid and anxiety disorder EVEN in real life. Telling me get off internet wouldn’t magically heal my health😭
 
+—- I'm pretty open-minded, so my perspective changes from time to time.
+
 
 — I'm not very good at responding to people, so please don't take it personally I never learned how to socialize as a child, and I find it difficult to hold a conversation.
+
+
+
 
 —- I have no problem with anyone talking about ships that involves my kintypes or my yumes, like rarepairs, crossover or anything like that. as long as yall don’t force it on me. I’m fine with ppl bringing about some ships I dislikes.
 
