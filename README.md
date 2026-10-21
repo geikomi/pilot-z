@@ -9,11 +9,13 @@
 
 
 _________
-uhhhh Looking for cool alterhuman older friends whos 18 and oldr… 17 yr and 16 is alright.
-I’m fine with C*H, or whisper me.
+
+ꗞ⠀—  I only stick around with ppl Im close to. shrugs
+
+⠀⠀ ⠀⠀⠀I’m fine with C*H, or whisper me.
 
 
-I only stick around with ppl Im close to. shrugs
+⠀
 
 
 $${\color{#008000} IƬƧ \ MΣ \ ƬΉΣ \ ЯΣΛᄂ \ ΉΛᄂ \ JꗞЯDΛП/j}$$
@@ -284,6 +286,8 @@ caiman lizards
 
 
 —- Sometimes I  like to crown ppl in whispers 
+
+— uhhhh Looking for cool alterhuman older friends whos 18 and oldr… 17 yr and 16 is alright.
 
 — I’m obsessed with paleontology, space, science, biology, histroy + others!
 
