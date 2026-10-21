@@ -391,7 +391,7 @@ Animal hospital
 <summary>DISLIKES !</summary>
 
 
-[ Our boundaries may be ridiculous. ]
+[Boundaries may be ridiculous. ]
 
 
 
