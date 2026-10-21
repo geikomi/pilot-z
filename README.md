@@ -196,6 +196,8 @@ fictotypes ;
 
   Booster gold . HIGH - doubles? DNI
 
+Stan marsh IRL/ID — doubles? depends
+
   Doom slayer . ID - doubles? DNI
   
  Michael de santa . Fullkin/ID — doubles? IWEC.
@@ -210,6 +212,9 @@ Music meister . HIGH - doubles? IWEC
 Angel xmen . Fullfic - doubles? IWEC
 
 Jetfire/Skyfire . ID - doubles? IWEC
+
+
+Extra [pronoun.cc](https://pronouns.cc/@.1batz)
 _________________
  
  
