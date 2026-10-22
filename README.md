@@ -103,7 +103,7 @@ ___________
 ⠀⠀ ⠀⏔⏔⏔⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱⏔⏔⏔⏔⏔⏔⏔⏔
 ⠀ ⠀⠀⠀
 
-𐂂 -- I always stay close with my lovely friends ⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀[erik/shwinn :3](https://github.com/shw1enholmes), [office/billy](https://github.com/dinosaursawesome), [jimmy](https://github.com/jimmyiktT), [kirk](https://github.com/thedeerhasdied), [hiro](https://github.com/hirokojie), & [glitch](https://github.com/AGl1tchWasF0und)! + those who dont have a git or outside pt! I'm lazy to list others
+𐂂 -- I always stay close with my lovely friends ⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀[@erik/shwinn :3](https://github.com/shw1enholmes), [@office/billy](https://github.com/dinosaursawesome), [@jimmy](https://github.com/jimmyiktT), [@kirk](https://github.com/thedeerhasdied), [@ahteus](https://github.com/genjiis), [@hiro](https://github.com/hirokojie), & [@glitch](https://github.com/AGl1tchWasF0und)! , [@remy/rust](https://github.com/espionner) + those who dont have a git or outside pt! I'm lazy to list others
  
 ⠀ ⠀⠀𐂂 -- ⠀ One of my cool friend,[erik](https://github.com/shw1enholmes) drew my oc! <img src="https://github.com/bat-z/bat-z/blob/79202cb94bfe929016ec25f37cd8b2985a6ca8e3/Untitled132_20260712130437.png" width
   ="50%">
