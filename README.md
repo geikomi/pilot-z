@@ -334,12 +334,17 @@ Animal hospital
 —- I'm pretty open-minded, so my thoughts changes from time to time.
 
 
+𐂂 — Please bear in mind that I have dyslexia, Dysgraphia, and dyscalculia. 
+Very fun. My main problems are basic spelling, poor grammar, counting, reading time, and list goes on...Please don’t be upset with me.
+I only allow close friends, like Erik and Frances, to poke fun of my typos. I trust them n I know they don't mean any harm.
+
+
 — I'm not very good at responding to people, so please don't take it personally I never learned how to socialize as a child, and I find it difficult to hold a conversation.
 
 
 I'm not a trend hopper, so don't expect me to keep up with every new slang or trend once a week.
 
-—- I have no problem with anyone talking about ships that involves my kintypes or my yumes, like rarepairs, crossover or anything like that. as long as yall don’t force it on me. I’m fine with ppl bringing about some ships I dislikes.
+—- I have no problem with anyone talking about ships that involves my kintypes or my yumes, like rarepairs, crossover, popular or anything like that. as long as yall don’t force it on me. I’m fine with ppl bringing about some ships I dislikes.
 
 
 — I tend to repeat words
@@ -386,9 +391,6 @@ I don’t want to come across as annoying or as if I'm bothering anyone.
 I know I shouldn't care at all, but I’ve realized that several people have blocked/unfriended me because of this without telling me what I’m doing wrong. That one is 100% my fault. My social battery also sometimes drains quickly.
 
 
-— Please bear in mind that I have dyslexia, Dysgraphia, and dyscalculia. very fun.
-My main problems are basic spelling, poor grammar, counting, and list goes on... 
-Please don’t be upset with me
 
 —- I take my interests very seriously; what I mean is that I don't like hearing people talking bad my comfort characters in front of me. Such as Stan marsh, Kyle , Booster Gold, Wonderwoman, Hal jordan, Damian Wayne, Arin, Jon, or some more.( Ras n Guy don’t count ) I have no problem with others not liking them or talk about they dislike them for reasons, but I don't need to hear how much they hated them, nor do I need them spreading bullshit about them 24/7. Keep it to yourselves.
 
