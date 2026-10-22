@@ -10,17 +10,22 @@
 
 _________
 
-ꗞ⠀—  I only stick around with ppl Im close to. shrugs
-
-⠀⠀ ⠀⠀⠀I’m fine with C*H, or whisper me.
-
-[ click this ](https://www.tiktok.com/t/ZTfSoApKs/)
-⠀
-
-
 
 $${\color{#008000} IƬƧ \ MΣ \ ƬΉΣ \ ЯΣΛᄂ \ ΉΛᄂ \ JꗞЯDΛП/j}$$
 
+
+_______________
+
+
+ꗞ⠀—  I only stick around with ppl Im close to. shrugs
+
+⠀⠀ ⠀⠀⠀I’m fine with C*H, or whisper me!!
+
+⠀ ⠀ ⠀ 
+
+
+⠀⠀⠀ ⠀⠀ ⠀[ click this ](https://www.tiktok.com/t/ZTfSoApKs/)
+⠀
 
  
    ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ [ATABOOK](https://harold.atabook.org)  ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀  ⠀ 𐂂⠀-- ⠀ 
