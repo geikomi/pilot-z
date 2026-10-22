@@ -50,7 +50,7 @@ $${\color{#F2A67B}  ૮ ˶ᵔ ᵕ ᵔ˶ ა \ ME \ AS \ STAN \ AND \ ERIK \ AS \
 
  $${\color{#A888B5} JIM \ AS \ KENNY, \ KIRK \ AS \ CARTMAN.(sorry) \ ! !  }$$
 
-I’m so glad our friendship is still going strong! It’s been a year since we all met. I love you all, I 100% do(pleass trust). including the other friends I haven’t mentioned here.
+I’m so glad our friendship is still going strong! It’s been a year(I think me and erik is almost 2 years..?) since we all met. I love you all, I 100% do(pleass trust). including the other friends I haven’t mentioned here.
 
 __________
 
