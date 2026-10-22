@@ -79,96 +79,6 @@ __________
 
 
 
- 
- <details>                     
-<summary> ABOUT ME & BEFORE YOU INTERACT![ You do not have to read all of them since its a lot. ] Be warned.. I yap a lot. !</summary>
-
-
-
-
-— If i sound rude please let me know!
-
-
-— I am mentally ill, please iwc unless we close. 👍. i’m known to have Paranoid and anxiety disorder EVEN in real life. Telling me get off internet wouldn’t magically heal my health😭
-
-—- I'm pretty open-minded, so my thoughts changes from time to time.
-
-
-— I'm not very good at responding to people, so please don't take it personally I never learned how to socialize as a child, and I find it difficult to hold a conversation.
-
-
-
-
-—- I have no problem with anyone talking about ships that involves my kintypes or my yumes, like rarepairs, crossover or anything like that. as long as yall don’t force it on me. I’m fine with ppl bringing about some ships I dislikes.
-
-
-— I tend to repeat words
-
- 
-ꗞ — Im aware that I am a weirdo.
-If you think I've taken things too far by using microlabels, xenogenders, alterhuman, etc. Feel free to not int, or block me if you are uncomfortable with my existence or our community. 
-
-I am a good-faith identity, that means I support not policing or excluding harmless identities, even those that are difficult to understand part of the community.
-
-
-
-I don't tolerate xenophobic or racism. That includes having an entire group on your list. I refuse to talk with anyone who adds black ppl or different groups in their list. I don't feel safe around people like that.
-
-I’m against anyone in our community who opposes our trans sisters. I am against misgendering[even against those who claimed they support xeno/neopronouns] in our community. Just because someone upsets you or is “problematic” , that doesn't give you an excuse to be transphobic, even if you are a queer cis person, trans man, nonbinary, etc. 
-I’m not interested in transmed stuff neither. 
-
-
- 
-
-ꗞ — Whats the point of terms?
-It may not help, but i will try. 
-For me, I use them to discover more about myself. Thats it.
-May seem ridiculous n cringe to u,but as a person who is diagnosed, its harder for me to read social cues,understand myself,n more. I use terms/labels to help me understand the way I feel, figure out my identity,find others who relate to what I am going through, etc, to fit in. 
-Most of terms are in main pronouncc I’m only comfortable to share with people I trust.
-
-ꗞ — Am I a bad person for kinfirming overhated characters, even problematic ones like Blackhand n Sabretooth? No.
-If you think otherwise, thats okay, but keep it to yourself. Even you believe it is a choice.
-Its ur belief, not mine. It feels pointless to argue. kinfirm a character does not mean I agree with their actions. i cannot help who I kin, but I control my actions.
-
-— I care a lot about my own image.
-
-— Pls do not force me to give myself a system role or anything like that.
-Just bec I have DID, doesn’t mean I need a label, nor do people need to know whether or not Im a”singlet.”
-I am a living being in a living body,
-n I want to be treated like one.
- I don't like calling myself a system because it feels wrong to me. 
-I also dont like using we/us or called a host.  I don't need labels to be valid, and I don't need one just to let others know I have DID. I want to be treated like you guys treat others, and that is it. This goes with autism and other conditions. Having a disability or a mental disorder doesn’t change who I am.
-
-—  I’m awkward as shit ;
-My social anxiety is really horror and I get overwhelmed really easily, also sensitive..? 
-I tend to be somewhat quiet or rarely INT first or chat when it comes with new people. 
-I don’t want to come across as annoying or as if I'm bothering anyone. 
-I know I shouldn't care at all, but I’ve realized that several people have blocked/unfriended me because of this without telling me what I’m doing wrong. That one is 100% my fault. My social battery also sometimes drains quickly.
-
-
-— Please bear in mind that I have dyslexia, Dysgraphia, and dyscalculia. very fun.
-My main problems are basic spelling, poor grammar, counting, and list goes on... 
-Please don’t be upset with me
-
-—- I take my interests very seriously; what I mean is that I don't like hearing people talking bad my comfort characters in front of me. Such as Stan marsh, Kyle , Booster Gold, Wonderwoman, Hal jordan, Damian Wayne, Arin, Jon, or some more.( Ras n Guy don’t count ) I have no problem with others not liking them or talk about they dislike them for reasons, but I don't need to hear how much they hated them, nor do I need them spreading bullshit about them 24/7. Keep it to yourselves.
-
-
-If you make me uncomfortable, it might take some time to explain it to you. I am not great at confronting others due to past traumas
-
-➤ I have trouble with reading tones be careful with sarcasm! I'm not a big fan of tonetags, but I don't mind people using them! Just dont overuse them
-
-
-— I get attached very easily and I am an overthinker. I worried/care about my friends and the people I interact with, and I try to be on their good side.
-I apologize very often, and I also find it hard to say no or set boundaries for myself.
-
-  — I struggle with social cues. Sometimes I don't think before I speak. If I ever say something incorrect or something that could be offensive in any way, tell me! I will correct myself and then apologize. Don't be afraid to point it out to me as I said, I’m not afraid of my own mistakes 
-
- — I tend to get very clingy to the people[well, rarely.] I feel comfortable with, and I end up being annoying. If you don't like that, tell me.
-
-
-</details>
-
-
 
 ⠀⠀ ⠀⠀ ⠀ ⠀⠀ <details> 
 ⠀⠀⠀ ⠀ <summary> REMINDER </summary>
@@ -400,6 +310,96 @@ Animal hospital
 
 
 </details>
+
+
+ <details>                     
+<summary> ABOUT ME & BEFORE YOU INTERACT![ You do not have to read all of them since its a lot. ] Be warned.. I yap a lot. !</summary>
+
+
+
+
+— If i sound rude please let me know!
+
+
+— I am mentally ill, please iwc unless we close. 👍. i’m known to have Paranoid and anxiety disorder EVEN in real life. Telling me get off internet wouldn’t magically heal my health😭
+
+—- I'm pretty open-minded, so my thoughts changes from time to time.
+
+
+— I'm not very good at responding to people, so please don't take it personally I never learned how to socialize as a child, and I find it difficult to hold a conversation.
+
+
+I'm not a trend hopper, so don't expect me to keep up with every new slang or trend once a week.
+
+—- I have no problem with anyone talking about ships that involves my kintypes or my yumes, like rarepairs, crossover or anything like that. as long as yall don’t force it on me. I’m fine with ppl bringing about some ships I dislikes.
+
+
+— I tend to repeat words
+
+ 
+ꗞ — Im aware that I am a weirdo.
+If you think I've taken things too far by using microlabels, xenogenders, alterhuman, etc. Feel free to not int, or block me if you are uncomfortable with my existence or our community. 
+
+I am a good-faith identity, that means I support not policing or excluding harmless identities, even those that are difficult to understand part of the community.
+
+
+
+I don't tolerate xenophobic or racism. That includes having an entire group on your list. I refuse to talk with anyone who adds black ppl or different groups in their list. I don't feel safe around people like that.
+
+I’m against anyone in our community who opposes our trans sisters. I am against misgendering[even against those who claimed they support xeno/neopronouns] in our community. Just because someone upsets you or is “problematic” , that doesn't give you an excuse to be transphobic, even if you are a queer cis person, trans man, nonbinary, etc. 
+I’m not interested in transmed stuff neither. 
+
+
+ 
+
+ꗞ — Whats the point of terms?
+It may not help, but i will try. 
+For me, I use them to discover more about myself. Thats it.
+May seem ridiculous n cringe to u,but as a person who is diagnosed, its harder for me to read social cues,understand myself,n more. I use terms/labels to help me understand the way I feel, figure out my identity,find others who relate to what I am going through, etc, to fit in. 
+Most of terms are in main pronouncc I’m only comfortable to share with people I trust.
+
+ꗞ — Am I a bad person for kinfirming overhated characters, even problematic ones like Blackhand n Sabretooth? No.
+If you think otherwise, thats okay, but keep it to yourself. Even you believe it is a choice.
+Its ur belief, not mine. It feels pointless to argue. kinfirm a character does not mean I agree with their actions. i cannot help who I kin, but I control my actions.
+
+— I care a lot about my own image.
+
+— Pls do not force me to give myself a system role or anything like that.
+Just bec I have DID, doesn’t mean I need a label, nor do people need to know whether or not Im a”singlet.”
+I am a living being in a living body,
+n I want to be treated like one.
+ I don't like calling myself a system because it feels wrong to me. 
+I also dont like using we/us or called a host.  I don't need labels to be valid, and I don't need one just to let others know I have DID. I want to be treated like you guys treat others, and that is it. This goes with autism and other conditions. Having a disability or a mental disorder doesn’t change who I am.
+
+—  I’m awkward as shit ;
+My social anxiety is really horror and I get overwhelmed really easily, also sensitive..? 
+I tend to be somewhat quiet or rarely INT first or chat when it comes with new people. 
+I don’t want to come across as annoying or as if I'm bothering anyone. 
+I know I shouldn't care at all, but I’ve realized that several people have blocked/unfriended me because of this without telling me what I’m doing wrong. That one is 100% my fault. My social battery also sometimes drains quickly.
+
+
+— Please bear in mind that I have dyslexia, Dysgraphia, and dyscalculia. very fun.
+My main problems are basic spelling, poor grammar, counting, and list goes on... 
+Please don’t be upset with me
+
+—- I take my interests very seriously; what I mean is that I don't like hearing people talking bad my comfort characters in front of me. Such as Stan marsh, Kyle , Booster Gold, Wonderwoman, Hal jordan, Damian Wayne, Arin, Jon, or some more.( Ras n Guy don’t count ) I have no problem with others not liking them or talk about they dislike them for reasons, but I don't need to hear how much they hated them, nor do I need them spreading bullshit about them 24/7. Keep it to yourselves.
+
+
+If you make me uncomfortable, it might take some time to explain it to you. I am not great at confronting others due to past traumas
+
+➤ I have trouble with reading tones be careful with sarcasm! I'm not a big fan of tonetags, but I don't mind people using them! Just dont overuse them
+
+
+— I get attached very easily and I am an overthinker. I worried/care about my friends and the people I interact with, and I try to be on their good side.
+I apologize very often, and I also find it hard to say no or set boundaries for myself.
+
+  — I struggle with social cues. Sometimes I don't think before I speak. If I ever say something incorrect or something that could be offensive in any way, tell me! I will correct myself and then apologize. Don't be afraid to point it out to me as I said, I’m not afraid of my own mistakes 
+
+ — I tend to get very clingy to the people[well, rarely.] I feel comfortable with, and I end up being annoying. If you don't like that, tell me.
+
+
+</details>
+
 
  <details>
 <summary>DISLIKES !</summary>
