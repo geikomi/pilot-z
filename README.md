@@ -151,24 +151,24 @@ fictotypes ;
 
   I really don talk about kintypes much so here are the list.
 
-  Booster gold . HIGH - doubles? DNI
+☆  Booster gold . HIGH - doubles? DNI
 
-Stan marsh IRL/ID — doubles? depends
+★ Stan marsh IRL/ID — doubles? depends
 
-  Doom slayer . ID - doubles? DNI
+☆  Doom slayer . ID - doubles? DNI
   
- Michael de santa . Fullkin/ID — doubles? IWEC.
+★ Michael de santa . Fullkin/ID — doubles? IWEC.
   
-  Hal Jordan . Fullfic/IRL - doubles? DNI
+☆  Hal Jordan . Fullfic/IRL - doubles? DNI
  
 
-  Two face . Fullfic/ID - doubles? DNI
+☆  Two face . Fullfic/ID - doubles? DNI
   
-Music meister . HIGH - doubles? IWEC
+★ Music meister . HIGH - doubles? IWEC
 
-Angel xmen . Fullfic - doubles? IWEC
+★ Angel xmen . Fullfic - doubles? IWEC
 
-Jetfire/Skyfire . ID - doubles? IWEC
+★ Jetfire/Skyfire . ID - doubles? IWEC
 
 
 Extra [pronoun.cc](https://pronouns.cc/@.1batz)
@@ -178,53 +178,53 @@ _________________
  
  theriotype ;
  
- ferret
+★ ferret
 
- maned wolf
+★ maned wolf
 
- dalmatian dog
+★ dalmatian dog
 
- fox
+★ fox
 
- german shepherd 
+★ german shepherd 
  
- lion 
+★ lion 
 _________
 
 objects ;
 
-puppet 
+★ puppet 
 
-teddy bear
+★ teddy bear
 
-nutcracker
+★ nutcracker
 
 _______
 
 Other alterhumans;
 
-knight 
+★ knight 
 
-monitor lizard
+★ monitor lizard
 
-dragon
+★ dragon
 
-wolverine
+★ wolverine
 
- snake
+★ snake
  
- penguin
+★ penguin
 
- mouse
+★ mouse
 
- owl
+★ owl
 
-headless horseman
+★ headless horseman
 
-golden retriever
+★ golden retriever
 
 
-caiman lizards 
+★ caiman lizards 
 
 
 [ extra ]
@@ -240,25 +240,25 @@ caiman lizards
 
 
 
-—- Sometimes I  like to crown ppl in whispers 
+★ Sometimes I  like to crown ppl in whispers 
 
-— uhhhh Looking for cool alterhuman older friends whos 18 and oldr… 17 yr and 16 is alright.
+★ uhhhh Looking for cool alterhuman older friends whos 18 and oldr… 17 yr and 16 is alright.
 
-— I’m obsessed with paleontology, space, science, biology, histroy + others!
-
-
--- cooking/baking! I also like cooking & baking shows
-
-—- Cringe ppl pls int
-
--- Fav youtubers; Kwite, PolarCub, Kaden, Flamingo, & Funneh I still watch them
-
-— I love Green lanterns or the flash, YJ, JLI, JLA, doom patrol, JLE, and much more![I’m obsessed with DC ]
-
-— fantasy/mythical creatures lover. Knights are so cool
+★ I’m obsessed with paleontology, space, science, biology, histroy + others!
 
 
-—  drawing, painting, craft, etc.
+★ cooking/baking! I also like cooking & baking shows
+
+★ Cringe ppl pls int
+
+★ Fav youtubers; Kwite, PolarCub, Kaden, Flamingo, & Funneh I still watch them
+
+★ I love Green lanterns or the flash, YJ, JLI, JLA, doom patrol, JLE, and much more![I’m obsessed with DC ]
+
+★ fantasy/mythical creatures lover. Knights are so cool
+
+
+★  drawing, painting, craft, etc.
 
 
 — action movies/shows
