@@ -385,9 +385,6 @@ I only allow close friends, like Erik and Frances, to poke fun of my typos. I tr
 
 ☆  I have no problem with anyone talking about ships that involves my kintypes or my yumes, like rarepairs, crossover, popular or anything like that. as long as yall don’t force it on me. I’m fine with ppl bringing about some ships I dislikes.
 
-
-☆ I tend to repeat words
-
  
 ꗞ — Im aware that I am a weirdo.
 If you think I've taken things too far by using microlabels, xenogenders, alterhuman, etc. Feel free to not int, or block me if you are uncomfortable with my existence or our community. 
@@ -479,8 +476,6 @@ I do stay away from drama as much as possible and rarely get involved.  I always
 
 ☆ “Basic DNI” This phase gets on my nerves. What does that means? 
 
-
-☆ Hate-Train hoppers & others who can’t handle an opinion.
 
 
 ☆ Making fun of mental health terms. Like triggers, or anything. That includes systems 
