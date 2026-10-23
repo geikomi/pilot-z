@@ -365,6 +365,10 @@ I only follow ppl I am close and comfortable with.
 
 ★ I sometimes make unfunny childish jokes with my close friends. Like burps or idk.
 
+
+☆ I'm not much a trend hopper person, so don't expect me to keep up with every new slang or trend once a week.
+
+
 ☆ I am mentally ill, please iwc unless we close. 👍. i’m known to have Paranoid and anxiety disorder EVEN in real life. Telling me get off internet wouldn’t magically heal my health😭
 
 ★ I'm pretty open-minded, so my perspective changes from time to time. 👍
@@ -378,7 +382,7 @@ I only allow close friends, like Erik and Frances, to poke fun of my typos. I tr
 ☆ I'm not very good at responding to people, so please don't take it personally I never learned how to socialize as a child, and I find it difficult to hold a conversation.
 
 
-☆ I'm not a trend hopper, so don't expect me to keep up with every new slang or trend once a week.
+
 
 ☆  I have no problem with anyone talking about ships that involves my kintypes or my yumes, like rarepairs, crossover, popular or anything like that. as long as yall don’t force it on me. I’m fine with ppl bringing about some ships I dislikes.
 
