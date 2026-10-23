@@ -195,6 +195,8 @@ _______
 
 Other alterhumans;
 
+knight 
+
 monitor lizard
 
 wolverine
@@ -207,7 +209,7 @@ wolverine
 
  owl
 
-knife
+headless horseman
 
 golden retriever
 
