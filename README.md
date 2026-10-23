@@ -359,6 +359,9 @@ ________________
 
 ☆ If i sound rude please let me know!
 
+☆ I overshare if you don’t like that tell me.
+
+
 ☆ I rarely check random people's GitHub accounts unless they interact with me first. 
 I only follow ppl I am close and comfortable with.
 
