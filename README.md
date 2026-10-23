@@ -51,9 +51,6 @@ $${\color{#F2A67B}  ૮ ˶ᵔ ᵕ ᵔ˶ ა \ ME \ AS \ STAN \ AND \ ERIK \ AS \
 
 I’m so glad our friendship is still going strong! It’s been a year(I think me and erik is almost 2 years..?) since we all met. I love you all, I 100% do(pleass trust). including the other friends I haven’t mentioned here.
 
-___________
-⠀
-
 <img src="https://github.com/pilot-z/pilot-z/blob/74d5f3bfa006bd7534f5eb3656e02a90e40e0b2f/Untitled390_20261023144016.png" width="110%">
 
 
@@ -364,7 +361,7 @@ ___________________________________
 <summary> ABOUT ME & BEFORE YOU INTERACT![ You do not have to read all of them since its a lot. ] Be warned.. I yap a lot. !</summary>
 
 
-ꗞ — My boundaries may be ridiculous, but they mostly come from bad past experiences, so please respect them. I do not expect you to change for my comfort, but I do ask for respect.
+⠀⠀ ⠀ ⠀⠀⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ꗞ — My boundaries may be ridiculous, but they mostly come from bad past experiences, so please respect them. I do not expect you to change for my comfort, but I do ask for respect.
 
 
 ☆ If i sound rude please let me know!
