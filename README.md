@@ -464,7 +464,8 @@ I apologize very often, and I also find it hard to say no or set boundaries for 
 ☆ ship discourse
 
 
-ꗞ —  Drama. I’m no interested in any online argument. Do not drag me into one. I’ll also not going check "call-out" posts. I find call-out posts stupid and pointless. While I understand that exposing genuinely bad behavior is important since public figures aren't always good people, most call-out posts are just absolute bullshit. I already expect some people to be bad, but these posts usually focus on stupid things and just turn into a bunch of petty gossip or people arguing over a minor disagreement, etc, etc. "Do not harass this person." while showing their username and everything is just a poor excuses. I know i may stay away from drama and rarely i get in involved I also prefer to look at both sides of an issue to form my own opinion,  before making up my mind. 
+ꗞ —  Drama. I’m no interested in any online argument. Do not drag me into one. I’ll also not going check "call-out" posts. I find call-out posts stupid and pointless. While I understand that exposing genuinely bad behavior is important since public figures aren't always good people, most call-out posts are just absolute bullshit. I already expect some people to be bad, but these posts usually focus on stupid things and just turn into a bunch of petty gossip or people arguing over a minor disagreement, etc, etc. Showing their username and everything while claiming "do not harass this person." Is just a poor excuse. 
+I do stay away from drama as much as possible and rarely get involved.  I always prefer to look at both sides of an issue to form my own opinion before making up my mind. Thats all.
 
 
 
