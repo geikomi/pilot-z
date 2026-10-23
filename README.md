@@ -457,12 +457,16 @@ I apologize very often, and I also find it hard to say no or set boundaries for 
 ______________
 
 
+☆ Hard to explain, but Folks who weaponize the word woke or claims they’re CEO of “wokeness” act like someone is going to give them a medal for being a good guy. “Is it just me, or am I—“ 
+Dear God no, you are not. 
+
 ☆ I don't really like large crowds. Also, if it's a large group, I usually walk away.
 
 ☆ ship discourse
 
 
 ☆ riddler & fans from batman 2022 [ IWEC  unless we friends.]
+
 
 
 ꗞ —  Drama. I’m no interested in any online argument. Do not drag me into one. I’ll also not going check "call-out" posts. I find call-out posts stupid and pointless. While I understand that exposing genuinely bad behavior is important since public figures aren't always good people, most call-out posts are just absolute bullshit. I already expect some people to be bad, but these posts usually focus on stupid things and just turn into a bunch of petty gossip or people arguing over a minor disagreement, etc, etc. Showing their username and everything while claiming "do not harass this person." Is just a poor excuse. 
