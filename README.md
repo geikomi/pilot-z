@@ -365,8 +365,7 @@ I only follow ppl I am close and comfortable with.
 
 ☆ I am mentally ill, please iwc unless we close. 👍. i’m known to have Paranoid and anxiety disorder EVEN in real life. Telling me get off internet wouldn’t magically heal my health😭
 
-★ I'm pretty open-minded, so my perspective changes from time to time. 
-Since our views might sometimes be completely different, we might not always get along. 
+★ I'm pretty open-minded, so my perspective changes from time to time. 👍
 
 
 𐂂 — Please bear in mind that I have dyslexia, Dysgraphia, and dyscalculia. 
