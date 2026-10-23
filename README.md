@@ -519,9 +519,8 @@ ____________
 ☆ Those who break their own boundaries. "Dni"
 
 
-☆ ccherrypie/j-pawss. Hoping he’s not around 
+☆ @shw1enholmes. He stinks… jk I love you
 
-☆ My friend’s ex friends especially ex partners
 
 ☆ ppl who has "systems " in their dni list. Even obsessed of fakeclaiming or making fun of them. Don’t give me excuses.😭 
 
