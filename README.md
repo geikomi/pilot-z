@@ -34,7 +34,7 @@ ____________
 
 
 
-⠀ ⠀ ⠀ <img src="https://github.com/pilot-z/pilot-z/blob/969b582749bc9de6fbffe94c471672e8583ddf45/Untitled389_20261023143951.png" width="110%">⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀
+⠀ ⠀ ⠀ <img src="https://github.com/pilot-z/pilot-z/blob/b66c4c3ddb1c8b6b068e0fa53486fb20c803857d/Untitled397_20261023161714.png" width="110%">⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀
 
 
 <img src="https://github.com/pilot-z/pilot-z/blob/89866ae92d498dd4e727d1342553cf5a627313de/IMG_5328.jpeg" width="30%"><img src="https://github.com/pilot-z/pilot-z/blob/2a529d97a74147e924dac3d60e4315a43530ba57/IMG_5334.jpeg" width="30%"><img src="https://github.com/pilot-z/pilot-z/blob/613051128a646de26c8e364389632595d987b7c2/IMG_5332.jpeg" width="30%">
@@ -535,7 +535,7 @@ ____________
 
 <img src="https://github.com/pilot-z/pilot-z/blob/122b2e1519a03feef29516d50f4d426d37095907/34572EB2-4C06-4867-BCD1-48FCDED4DD6F.gif" width="90%">
 
-
+ <img src="https://github.com/pilot-z/pilot-z/blob/a9748ebd4ee91dcff4f62b03c0d00ebbdd494183/Untitled398_20261023161736.png" width="110%">
 
 _________
 
