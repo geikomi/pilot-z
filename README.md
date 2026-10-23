@@ -357,6 +357,8 @@ ___________________________________
 
 ⠀⠀ ⠀ ⠀⠀⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ꗞ — My boundaries may be ridiculous, but they mostly come from bad past experiences, so please respect them. I do not expect you to change for my comfort, but I do ask for respect.
 
+________________
+
 
 ☆ If i sound rude please let me know!
 
@@ -449,6 +451,8 @@ I apologize very often, and I also find it hard to say no or set boundaries for 
 
 
 ⠀ ⠀ ⠀ ꗞ — My boundaries may be ridiculous, but they mostly come from bad past experiences, so please respect them. I do not expect you to change for my comfort, but I do ask for respect.
+
+______________
 
 
 ☆ I don't really like large crowds. Also, if it's a large group, I usually walk away.
