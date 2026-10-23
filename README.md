@@ -370,7 +370,7 @@ ___________________________________
 ☆ If i sound rude please let me know!
 
 ☆ I rarely check random people's GitHub accounts unless they interact with me first. 
-I only follow accounts belonging to people I am close and comfortable with.
+I only follow ppl I am close and comfortable with.
 
 
 ☆ I am mentally ill, please iwc unless we close. 👍. i’m known to have Paranoid and anxiety disorder EVEN in real life. Telling me get off internet wouldn’t magically heal my health😭
