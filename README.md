@@ -7,7 +7,7 @@
 
 $${\color{#008000} IƬƧ \ MΣ \ ƬΉΣ \ ЯΣΛᄂ \ ΉΛᄂ \ JꗞЯDΛП/j}$$
 
-_______________ ⠀⠀⠀
+____________
 
 
 ꗞ⠀—  I only stick around with ppl Im close to. shrugs
@@ -52,7 +52,7 @@ $${\color{#F2A67B}  ૮ ˶ᵔ ᵕ ᵔ˶ ა \ ME \ AS \ STAN \ AND \ ERIK \ AS \
 I’m so glad our friendship is still going strong! It’s been a year(I think me and erik is almost 2 years..?) since we all met. I love you all, I 100% do(pleass trust). including the other friends I haven’t mentioned here.
 
 ___________
-⠀ <img src="https://github.com/pilot-z/pilot-z/blob/74d5f3bfa006bd7534f5eb3656e02a90e40e0b2f/Untitled390_20261023144016.png" width="30%">
+⠀ <img src="https://github.com/pilot-z/pilot-z/blob/74d5f3bfa006bd7534f5eb3656e02a90e40e0b2f/Untitled390_20261023144016.png" width="90%">
 
 
 ⠀ ⠀ ⠀ ⠀⠀ ⠀ANYWAY
