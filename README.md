@@ -108,7 +108,7 @@ Yk how some people believe they had past lives,or that their soul belongs to som
  ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ 
 ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ISTP 6w7 !
 ⠀ 
-⠀ ⠀ ⠀ ⠀⠀⠀ ⠀⠀⠀⠀ 𐂂 -- ⠀Furry, kemonomimi & alterhuman!
+⠀ ⠀ ⠀ <img src="https://github.com/pilot-z/pilot-z/blob/b506f26d90e90ef2bd6f6300ace039fa7c131ece/627322C3-EF57-47AF-B1D9-0880496984F0.gif" width="8%">⠀⠀⠀ ⠀⠀⠀⠀ 𐂂 -- ⠀Furry, kemonomimi & alterhuman!
 
 
 ⠀⠀ ⠀⠀⠀ 𐂂 --⠀phone user probably looks weird on PC
