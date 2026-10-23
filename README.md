@@ -519,7 +519,7 @@ ____________
 ☆ Those who break their own boundaries. "Dni"
 
 
-☆ @shw1enholmes. He stinks… jk I love you
+☆ @shw1enholmes. He stinks… dni dni dni jk I love you
 
 
 ☆ ppl who has "systems " in their dni list. Even obsessed of fakeclaiming or making fun of them. Don’t give me excuses.😭 
