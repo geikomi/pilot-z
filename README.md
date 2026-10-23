@@ -362,11 +362,7 @@ ________________
 ☆ I overshare if you don’t like that tell me.
 
 
-☆ I rarely check random people's GitHub accounts unless they interact with me first. 
-I only follow ppl I am close and comfortable with.
-
-
-★ I sometimes make unfunny childish jokes with my close friends. Like idk.
+★ I sometimes make unfunny childish jokes with my close friends. Like, idk.
 
 
 ☆ I'm not much a trend hopper person, so don't expect me to keep up with every new slang or trend once a week.
