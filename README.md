@@ -511,11 +511,11 @@ I do stay away from drama as much as possible and rarely get involved.  I always
 </details>
 
 <details>
-<summary>DNI MAY NOT WORK BUT I WONT BEFRIEND/WILL BLOCK/IGNORE !</summary>
+<summary>DNI MAY NOT WORK BUT I WONT BEFRIEND/WILL BLOCK/AND IGNORE !</summary>
 
 
 
-⠀ ⠀ ⠀ ꗞ — My boundaries may be ridiculous, but they mostly come from bad past experiences, so please respect them. I do not expect you to change for my comfort, but I do ask for respect.
+⠀ ⠀ ⠀ ꗞ — My boundaries may be ridiculous, but they mostly come from bad past experiences, so please respect them. I do not expect you to change for my comfort, but I do ask for respect. It is my own responsibility to avoid interacting with people I dislike.
 
 ____________
 
