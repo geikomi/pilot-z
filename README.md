@@ -52,7 +52,10 @@ $${\color{#F2A67B}  ૮ ˶ᵔ ᵕ ᵔ˶ ა \ ME \ AS \ STAN \ AND \ ERIK \ AS \
 I’m so glad our friendship is still going strong! It’s been a year(I think me and erik is almost 2 years..?) since we all met. I love you all, I 100% do(pleass trust). including the other friends I haven’t mentioned here.
 
 ___________
-⠀ <img src="https://github.com/pilot-z/pilot-z/blob/74d5f3bfa006bd7534f5eb3656e02a90e40e0b2f/Untitled390_20261023144016.png" width="110%">
+⠀
+<img src="https://github.com/pilot-z/pilot-z/blob/12e393dcb26507eeb25748ed809bd1d1688a4f95/Untitled392_20261023152534.png" width="90%">
+
+<img src="https://github.com/pilot-z/pilot-z/blob/74d5f3bfa006bd7534f5eb3656e02a90e40e0b2f/Untitled390_20261023144016.png" width="110%">
 
 
 ⠀ ⠀ ⠀ ⠀⠀ ⠀ANYWAY
