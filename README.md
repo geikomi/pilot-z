@@ -359,7 +359,7 @@ ________________
 
 ☆ If i sound rude please let me know!
 
-☆ If I am too much or overshare and if you don’t like that tell me.
+☆ If I am being too much or overshare and if you don’t like that let me know! I change my intro most of time bec im bored or maybe I said too much.😭
 
 
 ★ I sometimes make unfunny childish jokes with my close friends. Like, idk.
