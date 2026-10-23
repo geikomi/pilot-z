@@ -484,7 +484,7 @@ yumeshippers of my highest kintypes unless we friends
 </details>
 
 <details>
-<summary>I WONT BEFRIEND/WILL BLOCK/IGNORE !</summary>
+<summary>DNI MAY NOT WORK BUT I WONT BEFRIEND/WILL BLOCK/IGNORE !</summary>
   
 Those who break their own boundaries. "Dni"
 
