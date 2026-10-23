@@ -359,7 +359,7 @@ ________________
 
 ☆ If i sound rude please let me know!
 
-☆ I overshare if you don’t like that tell me.
+☆ If I am too much or overshare and if you don’t like that tell me.
 
 
 ★ I sometimes make unfunny childish jokes with my close friends. Like, idk.
