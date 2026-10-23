@@ -7,8 +7,7 @@
 
 $${\color{#008000} IƬƧ \ MΣ \ ƬΉΣ \ ЯΣΛᄂ \ ΉΛᄂ \ JꗞЯDΛП/j}$$
 
-
-_______________
+_______________ ⠀⠀⠀
 
 
 ꗞ⠀—  I only stick around with ppl Im close to. shrugs
@@ -52,12 +51,18 @@ $${\color{#F2A67B}  ૮ ˶ᵔ ᵕ ᵔ˶ ა \ ME \ AS \ STAN \ AND \ ERIK \ AS \
 
 I’m so glad our friendship is still going strong! It’s been a year(I think me and erik is almost 2 years..?) since we all met. I love you all, I 100% do(pleass trust). including the other friends I haven’t mentioned here.
 
-__________
+___________
+⠀ <img src="https://github.com/pilot-z/pilot-z/blob/74d5f3bfa006bd7534f5eb3656e02a90e40e0b2f/Untitled390_20261023144016.png" width="30%">
+
 
 ⠀ ⠀ ⠀ ⠀⠀ ⠀ANYWAY
 
+
 $${\color{#EFB6C8} \  (˶ˆᗜˆ˵) \ INTRODUCTION \  ! ! \ 𖥻.ᐟ ׁ  \ : }$$
 
+
+
+⠀ <img src="https://github.com/pilot-z/pilot-z/blob/78a66d938056b18746a706fffdc17a58baa6f42e/Untitled391_20261023144121.png" width="9%">
 
 
  ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ 𐂂 - Greetings, you can call me Hal / Harold or other names like Rae or Sol. I am fine with nicknames and kin names.
@@ -119,6 +124,9 @@ I’m not going to unblock anyone. Please stop bothering my friends. My friends 
 
 
 ___________
+
+⠀ <img src="https://github.com/pilot-z/pilot-z/blob/969b582749bc9de6fbffe94c471672e8583ddf45/Untitled389_20261023143951.png" width="30%">
+
 ⠀⠀ ⠀⏔⏔⏔⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱⏔⏔⏔⏔⏔⏔⏔⏔
 ⠀ ⠀⠀⠀
 
@@ -347,14 +355,19 @@ Animal hospital
 <summary> ABOUT ME & BEFORE YOU INTERACT![ You do not have to read all of them since its a lot. ] Be warned.. I yap a lot. !</summary>
 
 
+ My boundaries mostly come from bad past experiences, so please respect them. I do not expect you to change for my comfort, but I do ask for respect.
 
 
 — If i sound rude please let me know!
 
+— I rarely check random people's GitHub accounts unless they interact with me first. 
+I only follow accounts belonging to people I am close and comfortable with.
+
 
 — I am mentally ill, please iwc unless we close. 👍. i’m known to have Paranoid and anxiety disorder EVEN in real life. Telling me get off internet wouldn’t magically heal my health😭
 
-—- I'm pretty open-minded, so my thoughts changes from time to time.
+—- I'm pretty open-minded, so my perspective changes from time to time. 
+Since our views might be completely different, we might not always get along. 
 
 
 𐂂 — Please bear in mind that I have dyslexia, Dysgraphia, and dyscalculia. 
@@ -447,7 +460,7 @@ I don't really like large crowds. Also, if it's a large group, I usually walk aw
 ship discourse
 
 
-ꗞ —  Drama. I’m no interested in any online argument. Do not drag me into one. I’ll also not going check "call-out" posts. I find call-out posts stupid and pointless. While I understand that exposing genuinely bad behavior is important since public figures aren't always good people, most call-out posts are just absolute bullshit. I already expect some people to be bad, but these posts usually focus on stupid things and just turn into a bunch of petty gossip or people arguing over a minor disagreement, etc, etc. "Do not harass this person." while showing their username and everything is just a poor excuses.
+ꗞ —  Drama. I’m no interested in any online argument. Do not drag me into one. I’ll also not going check "call-out" posts. I find call-out posts stupid and pointless. While I understand that exposing genuinely bad behavior is important since public figures aren't always good people, most call-out posts are just absolute bullshit. I already expect some people to be bad, but these posts usually focus on stupid things and just turn into a bunch of petty gossip or people arguing over a minor disagreement, etc, etc. "Do not harass this person." while showing their username and everything is just a poor excuses. I know i may stay away from drama and rarely i get in involved I also prefer to look at both sides of an issue to form my own opinion,  before making up my mind. 
 
 
 
@@ -457,10 +470,13 @@ folks who think they’re better than anyone else. 🤔🤔🤔
 
 DC New 52. I don’t care if ppl liked it. We have different opinions 
 
+Seek drama. Like ppl who actively look to start drama. well as those who do not know how to apologize properly or take responsibility for their actions.
+
+
 “Basic DNI” This phase gets on my nerves. What does that means? 
 
 
-Seek drama. Like ppl who actively look to start drama. well as those who do not know how to apologize properly or take responsibility for their actions.
+Hate-Train hoppers & others who can’t handle an opinion.
 
 
  Making fun of mental health terms. Like triggers, or anything. That includes systems 
