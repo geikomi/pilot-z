@@ -51,7 +51,7 @@ $${\color{#F2A67B}  ૮ ˶ᵔ ᵕ ᵔ˶ ა \ ME \ AS \ STAN \ AND \ ERIK \ AS \
 
 I’m so glad our friendship is still going strong! It’s been a year(I think me and erik is almost 2 years..?) since we all met. I love you all, I 100% do(pleass trust). including the other friends I haven’t mentioned here.
 
-<img src="https://github.com/pilot-z/pilot-z/blob/74d5f3bfa006bd7534f5eb3656e02a90e40e0b2f/Untitled390_20261023144016.png" width="110%">
+<img src="https://github.com/pilot-z/pilot-z/blob/1cf86bbb6f9841ba99fc3f8465e7ded5b95ee961/Untitled396_20261023161151.png" width="110%">
 
 
 ⠀ ⠀ ⠀ ⠀⠀ ⠀ANYWAY
@@ -124,7 +124,7 @@ I’m not going to unblock anyone. Please stop bothering my friends. My friends 
 
 ⠀⠀⠀⠀ ⠀ ⠀ </details>
 
-⠀ <img src="https://github.com/pilot-z/pilot-z/blob/969b582749bc9de6fbffe94c471672e8583ddf45/Untitled389_20261023143951.png" width="110%">
+⠀ <img src="https://github.com/pilot-z/pilot-z/blob/1cf86bbb6f9841ba99fc3f8465e7ded5b95ee961/Untitled396_20261023161151.png" width="110%">
 
 ⠀⠀ ⠀⏔⏔⏔⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱⏔⏔⏔⏔⏔⏔⏔⏔
 ⠀ ⠀⠀⠀
