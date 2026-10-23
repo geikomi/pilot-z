@@ -261,10 +261,10 @@ Other alterhumans;
 ★  drawing, painting, craft, etc.
 
 
-— action movies/shows
+★ action movies/shows
 
 
-— Reading, learning new stuff and languages!
+★ Reading, learning new stuff and languages!
 
 
 ★ - OCS! OCS are very cool; one of my favorite parts to create. I also make transformer and superhero ocs. I like to yap bout my interests. If you get tired of it, please let me know👍.
@@ -280,71 +280,75 @@ Other alterhumans;
 
 ACTIVE ; 
 
-DC
+★ DC
 
-Villainous
+★ Villainous
 
-Marvel
+★ Marvel
 
-GTA5[Only story mode.]
+★ GTA5[Only story mode.]
 
 REST ;
 
-Rescue bots/Transformers
+★ Rescue bots/Transformers
 
 
-arcane
+★ arcane
 
-DreamZzz
+★ DreamZzz
 
-Minceaft story mode
+★ Minceaft story mode
 
-planet of the apes
-
-Ninjago
-
-The tick
-
-Incredibles
-
-Deltarune
-
-Star Trek
-
-FNAF + fangames
-
-Kipo and the age of wonderbeasts
-
-Monster High
-
-Good Omens
+★ planet of the apes
 
 
-Please please i don't want to be a magical girl
+★ Ninjago
 
-TMNT
+★ The tick
 
-Red dead Redemption II.
+★ Incredibles
+
+★ Deltarune
+
+★ The Walking dead game 
+
+★ Star Trek
+
+★ FNAF + fangames
+
+★ Kipo and the age of wonderbeasts
+
+★ Monster High
+
+★ Good Omens
+
+★ Starwars
+
+
+★ Please please i don't want to be a magical girl
+
+★ TMNT
+
+★ Red dead Redemption II.
+
+★ & much more.
 
 ___________________________________
 
 ➤ New to;
 
-The pitt
+★ The pitt
 
-Cherry crush
+★ Cherry crush
 
-House M.D
+★ House M.D
 
-Sherlock Holmes
+★ Sherlock Holmes
 
-Brokeback Mountain
+★ Brokeback Mountain
 
-Doctor Who
+★ Doctor Who
 
-Starwars 
-
-Animal hospital
 
 
 
@@ -355,18 +359,18 @@ Animal hospital
 <summary> ABOUT ME & BEFORE YOU INTERACT![ You do not have to read all of them since its a lot. ] Be warned.. I yap a lot. !</summary>
 
 
- My boundaries mostly come from bad past experiences, so please respect them. I do not expect you to change for my comfort, but I do ask for respect.
+ꗞ — My boundaries may be ridiculous, but they mostly come from bad past experiences, so please respect them. I do not expect you to change for my comfort, but I do ask for respect.
 
 
-— If i sound rude please let me know!
+☆ If i sound rude please let me know!
 
-— I rarely check random people's GitHub accounts unless they interact with me first. 
+☆ I rarely check random people's GitHub accounts unless they interact with me first. 
 I only follow accounts belonging to people I am close and comfortable with.
 
 
-— I am mentally ill, please iwc unless we close. 👍. i’m known to have Paranoid and anxiety disorder EVEN in real life. Telling me get off internet wouldn’t magically heal my health😭
+☆ I am mentally ill, please iwc unless we close. 👍. i’m known to have Paranoid and anxiety disorder EVEN in real life. Telling me get off internet wouldn’t magically heal my health😭
 
-—- I'm pretty open-minded, so my perspective changes from time to time. 
+★ I'm pretty open-minded, so my perspective changes from time to time. 
 Since our views might be completely different, we might not always get along. 
 
 
@@ -375,27 +379,27 @@ Very fun. My main problems are basic spelling, poor grammar, counting, reading t
 I only allow close friends, like Erik and Frances, to poke fun of my typos. I trust them n I know they don't mean any harm.
 
 
-— I'm not very good at responding to people, so please don't take it personally I never learned how to socialize as a child, and I find it difficult to hold a conversation.
+☆ I'm not very good at responding to people, so please don't take it personally I never learned how to socialize as a child, and I find it difficult to hold a conversation.
 
 
-I'm not a trend hopper, so don't expect me to keep up with every new slang or trend once a week.
+☆ I'm not a trend hopper, so don't expect me to keep up with every new slang or trend once a week.
 
-—- I have no problem with anyone talking about ships that involves my kintypes or my yumes, like rarepairs, crossover, popular or anything like that. as long as yall don’t force it on me. I’m fine with ppl bringing about some ships I dislikes.
+☆  I have no problem with anyone talking about ships that involves my kintypes or my yumes, like rarepairs, crossover, popular or anything like that. as long as yall don’t force it on me. I’m fine with ppl bringing about some ships I dislikes.
 
 
-— I tend to repeat words
+☆ I tend to repeat words
 
  
 ꗞ — Im aware that I am a weirdo.
 If you think I've taken things too far by using microlabels, xenogenders, alterhuman, etc. Feel free to not int, or block me if you are uncomfortable with my existence or our community. 
 
-I am a good-faith identity, that means I support not policing or excluding harmless identities, even those that are difficult to understand part of the community.
+★ I am a good-faith identity, that means I support not policing or excluding harmless identities, even those that are difficult to understand part of the community.
 
 
 
-I don't tolerate xenophobic or racism. That includes having an entire group on your list. I refuse to talk with anyone who adds black ppl or different groups in their list. I don't feel safe around people like that.
+☆ I don't tolerate xenophobic or racism. That includes having an entire group on your list. I refuse to talk with anyone who adds black ppl or different groups in their list. I don't feel safe around people like that.
 
-I’m against anyone in our community who opposes our trans sisters. I am against misgendering[even against those who claimed they support xeno/neopronouns] in our community. Just because someone upsets you or is “problematic” , that doesn't give you an excuse to be transphobic, even if you are a queer cis person, trans man, nonbinary, etc. 
+☆ I’m against anyone in our community who opposes our trans sisters. I am against misgendering[even against those who claimed they support xeno/neopronouns] in our community. Just because someone upsets you or is “problematic” , that doesn't give you an excuse to be transphobic, even if you are a queer cis person, trans man, nonbinary, etc. 
 I’m not interested in transmed stuff neither. 
 
 
@@ -411,16 +415,16 @@ Most of terms are in main pronouncc I’m only comfortable to share with people 
 If you think otherwise, thats okay, but keep it to yourself. Even you believe it is a choice.
 Its ur belief, not mine. It feels pointless to argue. kinfirm a character does not mean I agree with their actions. i cannot help who I kin, but I control my actions.
 
-— I care a lot about my own image.
+☆ — I care a lot about my own image.
 
-— Pls do not force me to give myself a system role or anything like that.
+☆ — Pls do not force me to give myself a system role or anything like that.
 Just bec I have DID, doesn’t mean I need a label, nor do people need to know whether or not Im a”singlet.”
 I am a living being in a living body,
 n I want to be treated like one.
  I don't like calling myself a system because it feels wrong to me. 
 I also dont like using we/us or called a host.  I don't need labels to be valid, and I don't need one just to let others know I have DID. I want to be treated like you guys treat others, and that is it. This goes with autism and other conditions. Having a disability or a mental disorder doesn’t change who I am.
 
-—  I’m awkward as shit ;
+☆ —  I’m awkward as shit ;
 My social anxiety is really horror and I get overwhelmed really easily, also sensitive..? 
 I tend to be somewhat quiet or rarely INT first or chat when it comes with new people. 
 I don’t want to come across as annoying or as if I'm bothering anyone. 
@@ -428,18 +432,18 @@ I know I shouldn't care at all, but I’ve realized that several people have blo
 
 
 
-—- I take my interests very seriously; what I mean is that I don't like hearing people talking bad my comfort characters in front of me. Such as Stan marsh, Kyle , Booster Gold, Wonderwoman, Hal jordan, Damian Wayne, Arin, Jon, or some more.( Ras n Guy don’t count ) I have no problem with others not liking them or talk about they dislike them for reasons, but I don't need to hear how much they hated them, nor do I need them spreading bullshit about them 24/7. Keep it to yourselves.
+☆ —- I take my interests very seriously; what I mean is that I don't like hearing people talking bad my comfort characters in front of me. Such as Stan marsh, Kyle , Booster Gold, Wonderwoman, Hal jordan, Damian Wayne, Arin, Jon, or some more.( Ras n Guy don’t count ) I have no problem with others not liking them or talk about they dislike them for reasons, but I don't need to hear how much they hated them, nor do I need them spreading bullshit about them 24/7. Keep it to yourselves.
 
 
-If you make me uncomfortable, it might take some time to explain it to you. I am not great at confronting others due to past traumas
+☆ If you make me uncomfortable, it might take some time to explain it to you. I am not great at confronting others due to past traumas
 
 ➤ I have trouble with reading tones be careful with sarcasm! I'm not a big fan of tonetags, but I don't mind people using them! Just dont overuse them
 
 
-— I get attached very easily and I am an overthinker. I worried/care about my friends and the people I interact with, and I try to be on their good side.
+☆ — I get attached very easily and I am an overthinker. I worried/care about my friends and the people I interact with, and I try to be on their good side.
 I apologize very often, and I also find it hard to say no or set boundaries for myself.
 
-  — I struggle with social cues. Sometimes I don't think before I speak. If I ever say something incorrect or something that could be offensive in any way, tell me! I will correct myself and then apologize. Don't be afraid to point it out to me as I said, I’m not afraid of my own mistakes 
+ ☆ — I struggle with social cues. Sometimes I don't think before I speak. If I ever say something incorrect or something that could be offensive in any way, tell me! I will correct myself and then apologize. Don't be afraid to point it out to me as I said, I’m not afraid of my own mistakes 
 
  — I tend to get very clingy to the people[well, rarely.] I feel comfortable with, and I end up being annoying. If you don't like that, tell me.
 
@@ -455,9 +459,9 @@ I apologize very often, and I also find it hard to say no or set boundaries for 
 
 
 
-I don't really like large crowds. Also, if it's a large group, I usually walk away.
+☆ I don't really like large crowds. Also, if it's a large group, I usually walk away.
 
-ship discourse
+☆ ship discourse
 
 
 ꗞ —  Drama. I’m no interested in any online argument. Do not drag me into one. I’ll also not going check "call-out" posts. I find call-out posts stupid and pointless. While I understand that exposing genuinely bad behavior is important since public figures aren't always good people, most call-out posts are just absolute bullshit. I already expect some people to be bad, but these posts usually focus on stupid things and just turn into a bunch of petty gossip or people arguing over a minor disagreement, etc, etc. "Do not harass this person." while showing their username and everything is just a poor excuses. I know i may stay away from drama and rarely i get in involved I also prefer to look at both sides of an issue to form my own opinion,  before making up my mind. 
@@ -465,24 +469,24 @@ ship discourse
 
 
 
-folks who think they’re better than anyone else. 🤔🤔🤔
+☆ folks who think they’re better than anyone else. 🤔🤔🤔
 
 
-DC New 52. I don’t care if ppl liked it. We have different opinions 
+☆ DC New 52. I don’t care if ppl liked it. We have different opinions 
 
-Seek drama. Like ppl who actively look to start drama. well as those who do not know how to apologize properly or take responsibility for their actions.
-
-
-“Basic DNI” This phase gets on my nerves. What does that means? 
+☆ Seek drama. Like ppl who actively look to start drama. well as those who do not know how to apologize properly or take responsibility for their actions.
 
 
-Hate-Train hoppers & others who can’t handle an opinion.
+☆ “Basic DNI” This phase gets on my nerves. What does that means? 
 
 
- Making fun of mental health terms. Like triggers, or anything. That includes systems 
+☆ Hate-Train hoppers & others who can’t handle an opinion.
+
+
+☆ Making fun of mental health terms. Like triggers, or anything. That includes systems 
 
  
-People who have problems with friends, unless they have done something uncomfortable/upset someone.
+☆ People who have problems with friends, unless they have done something uncomfortable/upset someone.
 
 
 </details>
@@ -490,11 +494,11 @@ People who have problems with friends, unless they have done something uncomfort
  <details>
 <summary>THIN ICES. NOT A DNI!</summary>
 
-Invincible , Craig fans, Jason Todd/Batfam fans and Eddsworld fans unless friends.
+☆ Invincible , Craig fans, Jason Todd/Batfam fans and Eddsworld fans unless friends.
 
- Supernatural IWVEC/or don’t mention unless friends. 
+☆ Supernatural IWVEC/or don’t mention unless friends. 
 
-yumeshippers of my highest kintypes unless we friends
+☆ yumeshipper of my highest kintypes unless we friends
 
 
 </details>
@@ -502,24 +506,24 @@ yumeshippers of my highest kintypes unless we friends
 <details>
 <summary>DNI MAY NOT WORK BUT I WONT BEFRIEND/WILL BLOCK/IGNORE !</summary>
   
-Those who break their own boundaries. "Dni"
+☆ Those who break their own boundaries. "Dni"
 
 
- ccherrypie/j-pawss. Hoping he’s not around 
+☆ ccherrypie/j-pawss. Hoping he’s not around 
 
- My friend’s ex friends especially ex partners
+☆ My friend’s ex friends especially ex partners
 
-ppl who has "systems " in their dni list. Even obsessed of fakeclaiming or making fun of them. Don’t give me excuses.😭 
+☆ ppl who has "systems " in their dni list. Even obsessed of fakeclaiming or making fun of them. Don’t give me excuses.😭 
 
-Ppl who has same name as my former friends. I feel petty sorry😞
-
-
+☆ Ppl who has same name as my former friends. I feel petty sorry😞
 
 
- No fandom DNI  
+
+
+☆ No fandom DNI  
 
  
-Not going to list others. I'm going to block whoever I want. I block freely! If I don't like your vibe, I'll probably avoid or block you shrugs
+☆ Not going to list others. I'm going to block whoever I want. I block freely! If I don't like your vibe, I'll probably avoid or block you shrugs
 
    
 </details>
