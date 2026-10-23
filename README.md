@@ -530,12 +530,12 @@ ______________
 <img src="https://github.com/pilot-z/pilot-z/blob/a3bb073ce75b06ceb414e8caffc5ed1e6cc001aa/IMG_5380.jpeg" width="30%"><img src="https://github.com/pilot-z/pilot-z/blob/44e2d325e43ddb84dffc4e233fa3539ad2925b2d/IMG_5381.jpeg" width="30%">
 
 
-____________
+
+
 
 
 <img src="https://github.com/pilot-z/pilot-z/blob/122b2e1519a03feef29516d50f4d426d37095907/34572EB2-4C06-4867-BCD1-48FCDED4DD6F.gif" width="90%">
 
- <img src="https://github.com/pilot-z/pilot-z/blob/a9748ebd4ee91dcff4f62b03c0d00ebbdd494183/Untitled398_20261023161736.png" width="110%">
 
 _________
 
