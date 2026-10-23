@@ -106,9 +106,10 @@ Yk how some people believe they had past lives,or that their soul belongs to som
 
 ⠀      ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀𐂂⠀  ⠀Introverted 
  ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ 
-⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ISTP 6w7 !
+⠀ ⠀
+<img src="https://github.com/pilot-z/pilot-z/blob/cdddddf6588e16e5213d7e6895a0e6060a6567bf/0F6A6417-5C79-45E8-9027-F728583D7E75.gif" width="9%"> ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ISTP 6w7 !
 ⠀ 
-⠀ ⠀ ⠀ <img src="https://github.com/pilot-z/pilot-z/blob/b506f26d90e90ef2bd6f6300ace039fa7c131ece/627322C3-EF57-47AF-B1D9-0880496984F0.gif" width="8%">⠀⠀⠀ ⠀⠀⠀⠀ 𐂂 -- ⠀Furry, kemonomimi & alterhuman!
+⠀ ⠀ ⠀ <img src="https://github.com/pilot-z/pilot-z/blob/b506f26d90e90ef2bd6f6300ace039fa7c131ece/627322C3-EF57-47AF-B1D9-0880496984F0.gif" width="9%">⠀⠀⠀ ⠀⠀⠀⠀ 𐂂 -- ⠀Furry, kemonomimi & alterhuman!
 
 
 ⠀⠀ ⠀⠀⠀ 𐂂 --⠀phone user probably looks weird on PC
