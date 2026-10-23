@@ -367,7 +367,7 @@ I only follow ppl I am close and comfortable with.
 ☆ I am mentally ill, please iwc unless we close. 👍. i’m known to have Paranoid and anxiety disorder EVEN in real life. Telling me get off internet wouldn’t magically heal my health😭
 
 ★ I'm pretty open-minded, so my perspective changes from time to time. 
-Since our views might be completely different, we might not always get along. 
+Since our views might sometimes be completely different, we might not always get along. 
 
 
 𐂂 — Please bear in mind that I have dyslexia, Dysgraphia, and dyscalculia. 
@@ -448,8 +448,7 @@ I apologize very often, and I also find it hard to say no or set boundaries for 
 <summary>DISLIKES !</summary>
 
 
-[Boundaries may be ridiculous. ]
-
+⠀ ⠀ ⠀ ꗞ — My boundaries may be ridiculous, but they mostly come from bad past experiences, so please respect them. I do not expect you to change for my comfort, but I do ask for respect.
 
 
 ☆ I don't really like large crowds. Also, if it's a large group, I usually walk away.
