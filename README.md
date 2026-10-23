@@ -56,7 +56,9 @@ __________
 
 ⠀ ⠀ ⠀ ⠀⠀ ⠀ANYWAY
 
-⠀ ⠀ ⠀ ⠀⠀ ⠀$${\color{#EFB6C8}  ദ്ദി(˶ˆᗜˆ˵)   \ INTRODUCTION \ ! !  }$$
+
+⠀ ⠀ ⠀ ⠀⠀ ⠀$${\color{#EFB6C8} ദ്ദി(˶ˆᗜˆ˵)   \ INTRODUCTION \ ! !}$$
+
 
  ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ 𐂂 - Greetings, you can call me Hal / Harold or other names like Rae or Sol. I am fine with nicknames and kin names.
  
