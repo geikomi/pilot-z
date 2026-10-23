@@ -124,9 +124,6 @@ I’m not going to unblock anyone. Please stop bothering my friends. My friends 
 
 ⠀⠀⠀⠀ ⠀ ⠀ </details>
 
-
-___________
-
 ⠀ <img src="https://github.com/pilot-z/pilot-z/blob/969b582749bc9de6fbffe94c471672e8583ddf45/Untitled389_20261023143951.png" width="110%">
 
 ⠀⠀ ⠀⏔⏔⏔⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱⏔⏔⏔⏔⏔⏔⏔⏔
