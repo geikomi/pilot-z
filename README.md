@@ -56,7 +56,7 @@ __________
 
 ⠀ ⠀ ⠀ ⠀⠀ ⠀ANYWAY
 
-$${\color{#EFB6C8} \  ദ്ദി(˶ˆᗜˆ˵) \ INTRODUCTION \  ! ! \ 𖥻.ᐟ ׁ   }$$
+$${\color{#EFB6C8} \  ദ്ദി(˶ˆᗜˆ˵) \ INTRODUCTION \  ! ! \ 𖥻.ᐟ ׁ  \ : }$$
 
 
 
