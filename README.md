@@ -363,6 +363,8 @@ ________________
 I only follow ppl I am close and comfortable with.
 
 
+★ I sometimes make unfunny childish jokes with my close friends. Like burps or idk.
+
 ☆ I am mentally ill, please iwc unless we close. 👍. i’m known to have Paranoid and anxiety disorder EVEN in real life. Telling me get off internet wouldn’t magically heal my health😭
 
 ★ I'm pretty open-minded, so my perspective changes from time to time. 👍
