@@ -76,7 +76,7 @@ $${\color{#EFB6C8} \  (˶ˆᗜˆ˵) \ INTRODUCTION \  ! ! \ 𖥻.ᐟ ׁ  \ : }$$
     
 ⠀⠀ ⠀ ⠀ ⠀⠀𐂂⠀ --⠀pronouns I prefer ; it / its or they / them .
       ⠀ <img 
-         ⠀ ⠀      ⠀ ⠀src="https://github.com/pilot-z/pilot-z/blob/026836c3978b60a21a78495c6eb15d9226c7e737/Untitled393_20261023152828.png" width="9%"> — Autism & ADHD
+       src="https://github.com/pilot-z/pilot-z/blob/026836c3978b60a21a78495c6eb15d9226c7e737/Untitled393_20261023152828.png" width="9%"> — Autism & ADHD
 
 
  
