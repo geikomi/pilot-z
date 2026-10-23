@@ -70,13 +70,21 @@ $${\color{#EFB6C8} \  ദ്ദി(˶ˆᗜˆ˵) \ INTRODUCTION \  ! ! \ 𖥻.ᐟ
          ⠀ ⠀ ⠀ ⠀𐂯 — Autism & ADHD
 
 
-   𐂯 —  ᵢ ᵣₑₐₗₗy ₛᵤcₖ ₐₜ ₑₓₚₗₐᵢₙᵢₙg ₜₕᵢₙgₛ, ₛₒ ᵢ ₘₒₛₜₗy ₐᵥₒᵢd ₜₕₑ wₒᵣd "fᵢcₜᵢₒₙₖᵢₙ" ₐₙd ”ₖᵢₙ.”
+ 
+⠀⠀ <details> 
+⠀⠀⠀ ⠀ <summary> 𐂯 </summary>
+
+⠀⠀⠀⠀   
+  𐂯 —  ᵢ ᵣₑₐₗₗy ₛᵤcₖ ₐₜ ₑₓₚₗₐᵢₙᵢₙg ₜₕᵢₙgₛ, ₛₒ ᵢ ₘₒₛₜₗy ₐᵥₒᵢd ₜₕₑ wₒᵣd "fᵢcₜᵢₒₙₖᵢₙ" ₐₙd ”ₖᵢₙ.”
 ᵢ ⱼᵤₛₜ ₛₐy, ”ᵢ ₐₘ ₜₕₐₜ cₕₐᵣₐcₜₑᵣ,” bₑc ₜₕₑy ₐᵣₑ ₘₑ ₙ ᵢ ₐₘ ₜₕₑₘ.
  Yₖ ₕₒw ₛₒₘₑ ₚₑₒₚₗₑ bₑₗᵢₑᵥₑ ₜₕₑy ₕₐd ₚₐₛₜ ₗᵢᵥₑₛ, ₒᵣ ₜₕₐₜ ₜₕₑᵢᵣ ₛₒᵤₗ bₑₗₒₙgₛ ₜₒ ₛₒₘₑₜₕᵢₙg ₑₗₛₑ, dₑₚₑₙdᵢₙg ₒₙ wₕₐₜ ₜₕₑy bₑₗᵢₑᵥₑ, ₘᵤₗₜᵢ₋ᵥₑᵣₛₑₛ,  ₑₜc? Fₒᵣ ₘₑ, ₜₕₐₜ fₑₑₗᵢₙg ᵢₛ ₑₙₜᵢᵣₑₗy ₜᵢₑd ₜₒ ₕₐₗ ⱼₒᵣdₐₙ ₒᵣ wₕᵢcₕₑᵥₑᵣ cₕₐᵣₐcₜₑᵣ ᵢₜ ₕₐₚₚₑₙₛ ₜₒ bₑ ᵢₙ ₐₙy ₗₑᵥₑₗₛ. ᵢ ₐₘ fᵤₗₗy ₐwₐᵣₑ ᵢ ₐₘ ᵢₙ ₐ ₕᵤₘₐₙ bₒdy. ₕₐₗ ᵢₛₙ'ₜ ⱼᵤₛₜ ₐ cₕₐᵣₐcₜₑᵣ ᵢ ᵣₑₗₐₜₑ ₜₒ ᵢₜ'ₛ ₘₒᵣₑ ₗᵢₖₑ ₗₒₒₖᵢₙg ᵢₙ ₐ ₘᵢᵣᵣₒᵣ. ₘₑₙₜₐₗₗy, ₚₛycₕₒₗₒgᵢcₐₗₗy, ₑₜc, ₜₕₐₜ ᵢₛ wₕₒ ᵢ ₐₘ.
+
+ 
  [I really suck at explaining things,so I mostly avoid the word "fictionkin" and ”kin.”
 I just say,”I am that character,” bec they are me n I am them.
 Yk how some people believe they had past lives,or that their soul belongs to something else, depending on what they believe, multi-verses, etc? For me, that feeling is entirely tied to Hal Jordan or whichever character it happens to be in any levels. I am fully aware I am in a human body.Hal isn't just a character I relate to It's more like looking in a mirror. Mentally,psychologically,etc, that is who I am.)
 
+⠀⠀⠀⠀ ⠀ ⠀ </details>
 
 
 <img src="https://github.com/pilot-z/pilot-z/blob/9b62aeb626a25b2f93cf99f4365c7057eada31db/IMG_5337.jpeg" width="9%"> ⠀𐂂⠀ -- Biracial ! (black n brown ) . Puerto Rico ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ 
