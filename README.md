@@ -457,7 +457,7 @@ I apologize very often, and I also find it hard to say no or set boundaries for 
 ______________
 
 
-☆ Hard to explain, but Folks who weaponize the word woke or claims they’re CEO of “wokeness” act like someone is going to give them a medal for being a good guy. “Is it just me, or am I—“ 
+☆ Hard to explain, but Folks who weaponize the word woke or claims they’re CEO of “wokeness” act like someone is going to give them a medal for being a good guy. “Is it just me, or am I—“, , 
 Dear God no, you are not. 
 
 ☆ I don't really like large crowds. Also, if it's a large group, I usually walk away.
