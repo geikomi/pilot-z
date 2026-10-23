@@ -75,7 +75,7 @@ $${\color{#EFB6C8} \  (˶ˆᗜˆ˵) \ INTRODUCTION \  ! ! \ 𖥻.ᐟ ׁ  \ : }$$
  ⠀ ⠀ ⠀ ⠀<img src="https://github.com/pilot-z/pilot-z/blob/f76e83295be1e342447ff96a7c28c32fe966b515/Untitled393_20261023152847.png" width="20%"><img src="https://github.com/pilot-z/pilot-z/blob/12e393dcb26507eeb25748ed809bd1d1688a4f95/Untitled392_20261023152534.png" width="20%">
     
 ⠀⠀ ⠀ ⠀ ⠀⠀𐂂⠀ --⠀pronouns I prefer ; it / its or they / them .
-      ⠀ 
+      ⠀ <img src="https://github.com/pilot-z/pilot-z/blob/026836c3978b60a21a78495c6eb15d9226c7e737/Untitled393_20261023152828.png" width="20%">
          ⠀ ⠀ ⠀ ⠀𐂯 — Autism & ADHD
 
 
