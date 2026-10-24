@@ -557,4 +557,4 @@ _________
 [Waiting4Zome1.] whispers: keyz
 
 
-$${\color{#008000}  this is baka }$$
+$${\color{#008000}  this  is  baka }$$
