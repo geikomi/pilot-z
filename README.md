@@ -79,14 +79,9 @@ $${\color{#EFB6C8} \  (˶ˆᗜˆ˵) \ INTRODUCTION \  ! ! \ 𖥻.ᐟ ׁ  \ : }$$
 ⠀⠀⠀ ⠀ <summary> 𐂯 </summary>
 
 ⠀⠀⠀⠀   
-  𐂯 —  ᵢ ᵣₑₐₗₗy ₛᵤcₖ ₐₜ ₑₓₚₗₐᵢₙᵢₙg ₜₕᵢₙgₛ, ₛₒ ᵢ ₘₒₛₜₗy ₐᵥₒᵢd ₜₕₑ wₒᵣd "fᵢcₜᵢₒₙₖᵢₙ" ₐₙd ”ₖᵢₙ.”
-ᵢ ⱼᵤₛₜ ₛₐy, ”ᵢ ₐₘ ₜₕₐₜ cₕₐᵣₐcₜₑᵣ,” bₑc ₜₕₑy ₐᵣₑ ₘₑ ₙ ᵢ ₐₘ ₜₕₑₘ.
- Yₖ ₕₒw ₛₒₘₑ ₚₑₒₚₗₑ bₑₗᵢₑᵥₑ ₜₕₑy ₕₐd ₚₐₛₜ ₗᵢᵥₑₛ, ₒᵣ ₜₕₐₜ ₜₕₑᵢᵣ ₛₒᵤₗ bₑₗₒₙgₛ ₜₒ ₛₒₘₑₜₕᵢₙg ₑₗₛₑ, dₑₚₑₙdᵢₙg ₒₙ wₕₐₜ ₜₕₑy bₑₗᵢₑᵥₑ, ₘᵤₗₜᵢ₋ᵥₑᵣₛₑₛ,  ₑₜc? Fₒᵣ ₘₑ, ₜₕₐₜ fₑₑₗᵢₙg ᵢₛ ₑₙₜᵢᵣₑₗy ₜᵢₑd ₜₒ ₕₐₗ ⱼₒᵣdₐₙ ₒᵣ wₕᵢcₕₑᵥₑᵣ cₕₐᵣₐcₜₑᵣ ᵢₜ ₕₐₚₚₑₙₛ ₜₒ bₑ ᵢₙ ₐₙy ₗₑᵥₑₗₛ. ᵢ ₐₘ fᵤₗₗy ₐwₐᵣₑ ᵢ ₐₘ ᵢₙ ₐ ₕᵤₘₐₙ bₒdy. ₕₐₗ ᵢₛₙ'ₜ ⱼᵤₛₜ ₐ cₕₐᵣₐcₜₑᵣ ᵢ ᵣₑₗₐₜₑ ₜₒ ᵢₜ'ₛ ₘₒᵣₑ ₗᵢₖₑ ₗₒₒₖᵢₙg ᵢₙ ₐ ₘᵢᵣᵣₒᵣ. ₘₑₙₜₐₗₗy, ₚₛycₕₒₗₒgᵢcₐₗₗy, ₑₜc, ₜₕₐₜ ᵢₛ wₕₒ ᵢ ₐₘ.
-
- 
- [I really suck at explaining things,so I mostly avoid the word "fictionkin" and ”kin.”
+  𐂯 —  I really suck at explaining things,so I mostly avoid the word "fictionkin" and ”kin.”
 I just say,”I am that character name,” bec they are me n I am them.
-Yk how some people believe they had past lives,or that their soul belongs to something else, depending on what they believe, multi-verses, etc? For me, that feeling is entirely tied to Hal Jordan or whichever character it happens to be in any levels. I am fully aware I am in a human body.Hal isn't just a character I relate to It's more like looking in a mirror. Mentally,psychologically,etc, that is who I am.)
+Yk how some people believe they had past lives,or that their soul belongs to something else, depending on what they believe, multi-verses, etc? For me, that feeling is entirely tied to Hal Jordan or whichever character it happens to be in any levels. I am fully aware I am in a human body.Hal isn't just a character I relate to It's more like looking in a mirror. Mentally,psychologically,etc, that is who I am.
 
 ⠀⠀⠀⠀ ⠀ ⠀ </details>
 
@@ -456,8 +451,7 @@ I apologize very often, and I also find it hard to say no or set boundaries for 
 ______________
 
 
-☆ Hard to explain, but Folks who weaponize the word woke or claims they’re CEO of “wokeness” act like someone is going to give them a medal for being a good guy. “Is it just me, or am I—“, , 
-Dear God no, you are not. 
+☆ Hard to explain, but Folks who weaponize the word woke or claims they’re CEO of “wokeness” act like someone is going to give them a medal for being a good guy. 
 
 ☆ I don't really like large crowds. Also, if it's a large group, I usually walk away.
 
