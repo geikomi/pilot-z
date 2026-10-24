@@ -233,7 +233,7 @@ Other alterhumans;
 
 
 
-★ Sometimes I  like to crown ppl in whispers 
+★ Sometimes I  like to crown ppl in whispers <img src="https://github.com/pilot-z/pilot-z/blob/3281430fb8e59e91510494b35513512fae105a29/90A47D0A-995C-4236-A769-3FC4BA531F2E.gif" width="10%">
 
 ★ uhhhh Looking for cool alterhuman older friends whos 18 and oldr… 17 yr and 16 is alright.
 
