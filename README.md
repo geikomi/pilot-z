@@ -343,7 +343,97 @@ ___________________________________
 </details>
 
 
- <details>                     
+
+ <details>
+<summary>DISLIKES !</summary>
+
+
+⠀ ⠀ ⠀ ꗞ — My boundaries may be ridiculous, but they mostly come from bad past experiences, so please respect them. I do not expect you to change for my comfort, but I do ask for respect.
+
+______________
+
+
+☆ Hard to explain, but Folks who weaponize the word woke or claims they’re CEO of “wokeness” act like someone is going to give them a medal for being a good guy. 
+
+☆ I don't really like large crowds. Also, if it's a large group, I usually walk away.
+
+☆ ship discourse
+
+
+☆ riddler & fans from batman 2022 [ IWEC  unless we friends.]
+
+
+
+ꗞ —  Drama. I’m no interested in any online argument. Do not drag me into one. I’ll also not going check "call-out" posts. I find call-out posts stupid and pointless. While I understand that exposing genuinely bad behavior is important since public figures aren't always good people, most call-out posts are just absolute bullshit. I already expect some people to be bad, but these posts usually focus on stupid things and just turn into a bunch of petty gossip or people arguing over a minor disagreement, etc, etc. Showing their username and everything while claiming "do not harass this person." Is just a poor excuse. 
+I do stay away from drama as much as possible and rarely get involved.  I always prefer to look at both sides of an issue to form my own opinion before making up my mind. Thats all.
+
+
+
+
+☆ folks who think they’re better than anyone else. 🤔🤔🤔
+
+
+☆ DC New 52. I don’t care if ppl liked it. We have different opinions 
+
+☆ Seek drama. Like ppl who actively look to start drama. well as those who do not know how to apologize properly or take responsibility for their actions.
+
+
+☆ “Basic DNI” This phase gets on my nerves. What does that means? 
+
+
+
+☆ Making fun of mental health terms. Like triggers, or anything. That includes systems 
+
+ 
+☆ People who have problems with friends, unless they have done something uncomfortable/upset someone.
+
+
+</details>
+
+ <details>
+<summary>THIN ICES. NOT A DNI!</summary>
+
+☆ Invincible , Craig fans, Jason Todd/Batfam fans and Eddsworld fans unless friends.
+
+☆ Creepypasta & Supernatural IWVEC/or don’t mention unless friends. 
+
+☆ yumeshipper of my highest kintypes unless we friends
+
+
+</details>
+
+<details>
+<summary>DNI MAY NOT WORK BUT I WONT BEFRIEND/WILL BLOCK/AND IGNORE !</summary>
+
+
+
+⠀ ⠀ ⠀ ꗞ — My boundaries may be ridiculous, but they mostly come from bad past experiences, so please respect them. I do not expect you to change for my comfort, but I do ask for respect. It is my own responsibility to avoid interacting with people I dislike.
+
+____________
+
+  
+☆ Those who break their own boundaries. "Dni"
+
+
+☆ @shw1enholmes. He stinks… dni dni dni jk I love you
+
+
+☆ ppl who has "systems " in their dni list. Even obsessed of fakeclaiming or making fun of them. Don’t give me excuses.😭 
+
+☆ Ppl who has same name as my former friends. I feel petty sorry😞
+
+
+
+
+☆ No fandom DNI  
+
+ 
+☆ Not going to list others. I'm going to block whoever I want. I block freely! If I don't like your vibe, I'll probably avoid or block you shrugs
+
+   
+</details>
+
+<details>                     
 <summary> ABOUT ME & BEFORE YOU INTERACT![ You do not have to read all of them since its a lot. ] Be warned.. I yap a lot. !</summary>
 
 
@@ -441,95 +531,6 @@ I apologize very often, and I also find it hard to say no or set boundaries for 
 
 </details>
 
-
- <details>
-<summary>DISLIKES !</summary>
-
-
-⠀ ⠀ ⠀ ꗞ — My boundaries may be ridiculous, but they mostly come from bad past experiences, so please respect them. I do not expect you to change for my comfort, but I do ask for respect.
-
-______________
-
-
-☆ Hard to explain, but Folks who weaponize the word woke or claims they’re CEO of “wokeness” act like someone is going to give them a medal for being a good guy. 
-
-☆ I don't really like large crowds. Also, if it's a large group, I usually walk away.
-
-☆ ship discourse
-
-
-☆ riddler & fans from batman 2022 [ IWEC  unless we friends.]
-
-
-
-ꗞ —  Drama. I’m no interested in any online argument. Do not drag me into one. I’ll also not going check "call-out" posts. I find call-out posts stupid and pointless. While I understand that exposing genuinely bad behavior is important since public figures aren't always good people, most call-out posts are just absolute bullshit. I already expect some people to be bad, but these posts usually focus on stupid things and just turn into a bunch of petty gossip or people arguing over a minor disagreement, etc, etc. Showing their username and everything while claiming "do not harass this person." Is just a poor excuse. 
-I do stay away from drama as much as possible and rarely get involved.  I always prefer to look at both sides of an issue to form my own opinion before making up my mind. Thats all.
-
-
-
-
-☆ folks who think they’re better than anyone else. 🤔🤔🤔
-
-
-☆ DC New 52. I don’t care if ppl liked it. We have different opinions 
-
-☆ Seek drama. Like ppl who actively look to start drama. well as those who do not know how to apologize properly or take responsibility for their actions.
-
-
-☆ “Basic DNI” This phase gets on my nerves. What does that means? 
-
-
-
-☆ Making fun of mental health terms. Like triggers, or anything. That includes systems 
-
- 
-☆ People who have problems with friends, unless they have done something uncomfortable/upset someone.
-
-
-</details>
-
- <details>
-<summary>THIN ICES. NOT A DNI!</summary>
-
-☆ Invincible , Craig fans, Jason Todd/Batfam fans and Eddsworld fans unless friends.
-
-☆ Creepypasta & Supernatural IWVEC/or don’t mention unless friends. 
-
-☆ yumeshipper of my highest kintypes unless we friends
-
-
-</details>
-
-<details>
-<summary>DNI MAY NOT WORK BUT I WONT BEFRIEND/WILL BLOCK/AND IGNORE !</summary>
-
-
-
-⠀ ⠀ ⠀ ꗞ — My boundaries may be ridiculous, but they mostly come from bad past experiences, so please respect them. I do not expect you to change for my comfort, but I do ask for respect. It is my own responsibility to avoid interacting with people I dislike.
-
-____________
-
-  
-☆ Those who break their own boundaries. "Dni"
-
-
-☆ @shw1enholmes. He stinks… dni dni dni jk I love you
-
-
-☆ ppl who has "systems " in their dni list. Even obsessed of fakeclaiming or making fun of them. Don’t give me excuses.😭 
-
-☆ Ppl who has same name as my former friends. I feel petty sorry😞
-
-
-
-
-☆ No fandom DNI  
-
- 
-☆ Not going to list others. I'm going to block whoever I want. I block freely! If I don't like your vibe, I'll probably avoid or block you shrugs
-
-   
-</details>
 
 ______________
 
