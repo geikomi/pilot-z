@@ -521,6 +521,7 @@ ____________
 
 ☆ @shw1enholmes. He stinks… dni dni dni jk I love you
 
+☆ Religion users
 
 ☆ ppl who has "systems " in their dni list. Even obsessed of fakeclaiming or making fun of them. Don’t give me excuses.😭 
 
