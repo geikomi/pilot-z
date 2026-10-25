@@ -81,7 +81,7 @@ $${\color{#EFB6C8} \  (˶ˆᗜˆ˵) \ INTRODUCTION \  ! ! \ 𖥻.ᐟ ׁ  \ : }$$
 ⠀⠀⠀⠀   
   𐂯 —  I really suck at explaining things,so I mostly avoid the word "fictionkin" and ”I kin ___.”
 I just say,”I am that character name,” bec they are me n I am them.
-Yk how some people believe they had past lives,or that their soul belongs to something else, depending on what they believe, multi-verses, etc? For me, that feeling is entirely tied to Hal Jordan or whichever character it happens to be in any levels. I am fully aware I am in a human body.Hal isn't just a character I relate to It's more like looking in a mirror. Mentally,psychologically,etc, that is who I am.
+Yk how some people believe they had past lives,or that their soul belongs to something else, depending on what they believe, multi-verses, etc? For me, that feeling is entirely tied to Hal Jordan or whichever character it happens to be in any levels. I am fully aware I am in a human body.Hal isn't just a character I relate to It's more like looking in a mirror. Mentally,psychologically,etc, that is who I am.<img src="https://github.com/pilot-z/pilot-z/blob/1fb19f8f05bed45bda30342d0c31d5adecf4719f/3AF1CC30-6CB4-4807-9971-D4DEE2D5ABF2.gif" width="30%">
 
 ⠀⠀⠀⠀ ⠀ ⠀ </details>
 
