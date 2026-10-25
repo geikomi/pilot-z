@@ -79,7 +79,7 @@ $${\color{#EFB6C8} \  (˶ˆᗜˆ˵) \ INTRODUCTION \  ! ! \ 𖥻.ᐟ ׁ  \ : }$$
 ⠀⠀⠀ ⠀ <summary> 𐂯 </summary>
 
 ⠀⠀⠀⠀   
-  𐂯 —  I really suck at explaining things,so I mostly avoid the word "fictionkin" and ”kin.”
+  𐂯 —  I really suck at explaining things,so I mostly avoid the word "fictionkin" and ”I kin ___.”
 I just say,”I am that character name,” bec they are me n I am them.
 Yk how some people believe they had past lives,or that their soul belongs to something else, depending on what they believe, multi-verses, etc? For me, that feeling is entirely tied to Hal Jordan or whichever character it happens to be in any levels. I am fully aware I am in a human body.Hal isn't just a character I relate to It's more like looking in a mirror. Mentally,psychologically,etc, that is who I am.
 
