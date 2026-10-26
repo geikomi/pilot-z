@@ -404,6 +404,8 @@ I do stay away from drama as much as possible and I do rarely get involved.  I a
 ☆ yumeshipper of my highest kintypes unless we friends
 
 
+☆  Non-sharing and void-sharing yumes, as well as double-dislikers of fictionkins[ UNLESS FRIENDS!]. Most I met are toxic af. They seriously wanna threat their doubles.💔
+
 </details>
 
 <details>
