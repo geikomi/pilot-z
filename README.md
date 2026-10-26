@@ -20,8 +20,7 @@ ____________
 ⠀
 
  
-   ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ <img src="https://github.com/pilot-z/pilot-z/blob/e73744ff4cfb586ab3112dd574ea861d201f2e4e/60391E64-0857-4904-8501-38FC56B7E9D3.gif" width="9%">[ATABOOK](https://harold.atabook.org)  ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀  ⠀ 𐂂⠀-- ⠀ 
- ⠀  ⠀ ⠀   <img src="https://github.com/pilot-z/pilot-z/blob/e73744ff4cfb586ab3112dd574ea861d201f2e4e/60391E64-0857-4904-8501-38FC56B7E9D3.gif" width="9%">[ABOUT ME](https://idkmaybeintro.straw.page)
+   ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ <img src="https://github.com/pilot-z/pilot-z/blob/e73744ff4cfb586ab3112dd574ea861d201f2e4e/60391E64-0857-4904-8501-38FC56B7E9D3.gif" width="9%">[ATABOOK](https://harold.atabook.org)  ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀  ⠀ 𐂂⠀-- <img src="https://github.com/pilot-z/pilot-z/blob/e73744ff4cfb586ab3112dd574ea861d201f2e4e/60391E64-0857-4904-8501-38FC56B7E9D3.gif" width="9%">[ABOUT ME](https://idkmaybeintro.straw.page)
 
 ⠀ ⠀ ⠀⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀
 
