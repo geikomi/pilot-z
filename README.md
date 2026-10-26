@@ -26,7 +26,7 @@ ____________
 ⠀ ⠀ ⠀⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀
 
 
- ⠀ ⠀ <img src="https://github.com/pilot-z/pilot-z/blob/e73744ff4cfb586ab3112dd574ea861d201f2e4e/60391E64-0857-4904-8501-38FC56B7E9D3.gif" width="9%">[MICROLABELS & MORE](https://pronouns.cc/@.1batz)⠀⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ 
+ ⠀ ⠀ <img src="https://github.com/pilot-z/pilot-z/blob/e73744ff4cfb586ab3112dd574ea861d201f2e4e/60391E64-0857-4904-8501-38FC56B7E9D3.gif" width="9%">[MICROLABELS & MORE](https://pronouns.cc/@.stan)⠀⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ 
 
 
 
@@ -158,7 +158,7 @@ fictotypes ;
 ★ Jetfire/Skyfire . ID - doubles? IWEC
 
 
-Extra [pronoun.cc](https://pronouns.cc/@.1batz)
+Extra <img src="https://github.com/pilot-z/pilot-z/blob/e73744ff4cfb586ab3112dd574ea861d201f2e4e/60391E64-0857-4904-8501-38FC56B7E9D3.gif" width="9%">[MICROLABELS & MORE](https://pronouns.cc/@.stan)⠀
 _________________
  
  
@@ -497,7 +497,7 @@ I’m not interested in transmed stuff neither.
 It may not help, but i will try. 
 For me, I use them to discover more about myself. Thats it.
 May seem ridiculous n cringe to u,but as a person who is diagnosed, its harder for me to read social cues,understand myself,n more. I use terms/labels to help me understand the way I feel, figure out my identity,find others who relate to what I am going through, etc, to fit in. 
-Most of terms are in main pronouncc I’m only comfortable to share with people I trust.
+Most of terms are in main pronouncc I’m only comfortable to share with people I trust.<img src="https://github.com/pilot-z/pilot-z/blob/e73744ff4cfb586ab3112dd574ea861d201f2e4e/60391E64-0857-4904-8501-38FC56B7E9D3.gif" width="9%">[MICROLABELS & MORE](https://pronouns.cc/@.stan)⠀
 
 ꗞ — Am I a bad person for kinfirming overhated characters, even problematic ones like Blackhand n Sabretooth? No.
 If you think otherwise, thats okay, but keep it to yourself. Even you believe it is a choice.
