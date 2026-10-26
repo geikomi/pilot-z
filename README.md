@@ -272,13 +272,13 @@ ACTIVE ;
 
 ★ DC
 
-★ South America 
+★ South Park(Only comfortable to int with 18+ fans.)
 
 ★ Villainous
 
 ★ Marvel
 
-★ GTA5[Only story mode.]
+★ GTA5[Only story mode. Only comfortable to int with 18+ fans.]
 
 REST ;
 
@@ -321,7 +321,7 @@ REST ;
 
 ★ TMNT
 
-★ Red dead Redemption II.
+★ Red dead Redemption II.(Only comfortable to int with 18+ fans.)
 
 ★ & much more.
 
@@ -397,7 +397,7 @@ I do stay away from drama as much as possible and I do rarely get involved.  I a
  <details>
 <summary>THIN ICES. NOT A DNI!</summary>
 
-☆ Invincible , Craig fans, Jason Todd/Batfam fans and Eddsworld fans unless friends.
+☆ Invincible , Creek fans, Jason Todd/Batfam fans and Eddsworld fans unless friends.
 
 ☆ Tweek/Craig, Jayroy, & Damijon shippers
 
