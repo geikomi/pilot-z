@@ -359,7 +359,7 @@ ______________
 
 ☆ I don't really like large crowds. Also, if it's a large group, I usually walk away.
 
-☆ ship discourse
+☆ ship discourse. I'm so tired of ship discourse. Even the conversations between antis and pro/darkshippers are annoying. I've heard the same arguments over 20 times now, and I just don't want to see it anymore.
 
 
 ☆ riddler & fans from batman 2022 [ IWEC  unless we friends.]
