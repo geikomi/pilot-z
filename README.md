@@ -398,7 +398,7 @@ I do stay away from drama as much as possible and I do rarely get involved.  I a
 
 ☆ Invincible , Creek fans, Jason Todd/Batfam fans and Eddsworld fans unless friends.
 
-☆ Tweek/Craig, Jayroy, & Damijon shippers
+☆ Creek, Jayroy, & Damijon shippers
 
 ☆ Creepypasta & Supernatural IWVEC/or don’t mention unless friends. 
 
