@@ -248,9 +248,11 @@ Other alterhumans;
 
 ★  drawing, painting, craft, etc.
 
+★ favorite color ; green, red, yellow, orange, 00b4ac, and purple!
 
 ★ action movies/shows
 
+★ all animals & plants! I love watching nature videos.
 
 ★ Reading, learning new stuff and languages!
 
