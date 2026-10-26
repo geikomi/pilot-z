@@ -395,7 +395,7 @@ I do stay away from drama as much as possible and I do rarely get involved.  I a
  <details>
 <summary>THIN ICES. NOT A DNI!</summary>
 
-☆ Invincible , Creek fans, Jason Todd/Batfam fans and Eddsworld fans unless friends.
+☆ Invincible , Craig fans, Jason Todd/Batfam fans and Eddsworld fans unless friends.
 
 ☆ Creek, Jayroy, & Damijon shippers
 
@@ -429,9 +429,6 @@ ____________
 ☆ Ppl who has same name as my former friends. I feel petty sorry😞
 
 
-
-
-☆ No fandom DNI  
 
  
 ☆ Not going to list others. I'm going to block whoever I want. I block freely! If I don't like your vibe, I'll probably avoid or block you shrugs
@@ -536,6 +533,31 @@ I apologize very often, and I also find it hard to say no or set boundaries for 
 
 
 </details>
+
+
+
+<details>
+<summary>1 </summary>
+
+
+★ 
+
+
+
+</details>
+
+
+
+<details>
+<summary>2 </summary>
+
+
+★ 
+
+
+
+</details>
+
 
 
 ______________
