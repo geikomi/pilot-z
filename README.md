@@ -399,6 +399,8 @@ I do stay away from drama as much as possible and I do rarely get involved.  I a
 
 ☆ Invincible , Craig fans, Jason Todd/Batfam fans and Eddsworld fans unless friends.
 
+☆ Tweek/Craig, Jaybird, & Damijon shippers
+
 ☆ Creepypasta & Supernatural IWVEC/or don’t mention unless friends. 
 
 ☆ yumeshipper of my highest kintypes unless we friends
