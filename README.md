@@ -252,7 +252,7 @@ Other alterhumans;
 
 ★ action movies/shows
 
-★ all animals & plants! I love watching nature videos.
+★ all animals & plants! I love watching nature videos & wildlife.
 
 ★ Reading, learning new stuff and languages!
 
