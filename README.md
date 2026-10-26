@@ -14,7 +14,6 @@ ____________
 
 ⠀⠀ ⠀⠀⠀I’m fine with C*H, or whisper me!!
 
-⠀ ⠀ ⠀ for now, south park fans are allow to int! [If you are 18 and older pls.]
 
 
 ⠀⠀⠀ ⠀⠀ ⠀[ click this ](https://www.tiktok.com/t/ZTfSoApKs/)
