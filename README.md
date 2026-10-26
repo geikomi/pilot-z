@@ -16,17 +16,17 @@ ____________
 
 
 
-⠀⠀⠀ ⠀⠀ ⠀[ click this ](https://www.tiktok.com/t/ZTfSoApKs/)
+⠀⠀⠀ ⠀⠀ ⠀<img src="https://github.com/pilot-z/pilot-z/blob/e73744ff4cfb586ab3112dd574ea861d201f2e4e/60391E64-0857-4904-8501-38FC56B7E9D3.gif" width="9%">[ click this ](https://www.tiktok.com/t/ZTfSoApKs/)
 ⠀
 
  
-   ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ [ATABOOK](https://harold.atabook.org)  ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀  ⠀ 𐂂⠀-- ⠀ 
- ⠀  ⠀ ⠀   [ABOUT ME](https://idkmaybeintro.straw.page)
+   ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ <img src="https://github.com/pilot-z/pilot-z/blob/e73744ff4cfb586ab3112dd574ea861d201f2e4e/60391E64-0857-4904-8501-38FC56B7E9D3.gif" width="9%">[ATABOOK](https://harold.atabook.org)  ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀  ⠀ 𐂂⠀-- ⠀ 
+ ⠀  ⠀ ⠀   <img src="https://github.com/pilot-z/pilot-z/blob/e73744ff4cfb586ab3112dd574ea861d201f2e4e/60391E64-0857-4904-8501-38FC56B7E9D3.gif" width="9%">[ABOUT ME](https://idkmaybeintro.straw.page)
 
 ⠀ ⠀ ⠀⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀
 
 
-[MICROLABELS & MORE](https://pronouns.cc/@.1batz)⠀⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ 
+ ⠀ ⠀ <img src="https://github.com/pilot-z/pilot-z/blob/e73744ff4cfb586ab3112dd574ea861d201f2e4e/60391E64-0857-4904-8501-38FC56B7E9D3.gif" width="9%">[MICROLABELS & MORE](https://pronouns.cc/@.1batz)⠀⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ 
 
 
 
