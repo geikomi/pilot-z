@@ -440,12 +440,20 @@ ____________
 <summary> ABOUT ME & BEFORE YOU INTERACT![ You do not have to read all of them since its a lot. ] Be warned.. I yap a lot. !</summary>
 
 
-⠀⠀ ⠀ ⠀⠀⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ꗞ — My boundaries may be ridiculous, but they mostly come from bad past experiences, so please respect them. I do not expect you to change for my comfort, but I do ask for respect.
+⠀⠀ ⠀ ⠀⠀⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ꗞ — My boundaries may be ridiculous, but they mostly come from bad past experiences, so please respect them. I do not expect you to change for my comfort, but I do ask for respect. 
+I do believe ppl should be themselves 
 
 ________________
 
 
 ☆ I have a hard time expressing my emotions clearly. If I ever come off as rude, please let me know!
+
+ꗞ — Whats the point of terms?
+It may not help, but i will try. 
+For me, I use them to discover more about myself. Thats it.
+May seem ridiculous n cringe to u,but as a person who is diagnosed, its harder for me to read social cues,understand myself,n more. I use terms/labels to help me understand the way I feel, figure out my identity,find others who relate to what I am going through, etc, try to fit in.
+Most of terms are in main pronouncc I’m only comfortable to share with people I trust.<img src="https://github.com/pilot-z/pilot-z/blob/e73744ff4cfb586ab3112dd574ea861d201f2e4e/60391E64-0857-4904-8501-38FC56B7E9D3.gif" width="9%">[MICROLABELS & MORE](https://pronouns.cc/@.stan)⠀
+
 
 ☆ If I am being too much or overshare and if you don’t like that let me know! I also change my intro most of time bec im bored or maybe I said too much.😭
 
@@ -487,13 +495,6 @@ If you think I've taken things too far by using microlabels, xenogenders, alterh
 I’m not interested in transmed stuff neither. 
 
 
- 
-
-ꗞ — Whats the point of terms?
-It may not help, but i will try. 
-For me, I use them to discover more about myself. Thats it.
-May seem ridiculous n cringe to u,but as a person who is diagnosed, its harder for me to read social cues,understand myself,n more. I use terms/labels to help me understand the way I feel, figure out my identity,find others who relate to what I am going through, etc, to fit in. 
-Most of terms are in main pronouncc I’m only comfortable to share with people I trust.<img src="https://github.com/pilot-z/pilot-z/blob/e73744ff4cfb586ab3112dd574ea861d201f2e4e/60391E64-0857-4904-8501-38FC56B7E9D3.gif" width="9%">[MICROLABELS & MORE](https://pronouns.cc/@.stan)⠀
 
 ꗞ — Am I a bad person for kinfirming overhated characters, even problematic ones like Blackhand n Sabretooth? No.
 If you think otherwise, thats okay, but keep it to yourself. Even you believe it is a choice.
