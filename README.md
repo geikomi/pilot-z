@@ -10,7 +10,7 @@ $${\color{#008000} IƬƧ \ MΣ \ ƬΉΣ \ ЯΣΛᄂ \ ΉΛᄂ \ JꗞЯDΛП/j}$$
 ____________
 
 
-ꗞ⠀—  I only stick around with ppl Im close to. shrugs
+ꗞ⠀—  I only stick around with ppl Im close to. shrugs. remaking intro soon! 
 
 ⠀⠀ ⠀⠀⠀I’m fine with C*H, or whisper me!!
 
