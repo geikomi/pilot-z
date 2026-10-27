@@ -350,7 +350,7 @@ ___________________________________
 <summary>DISLIKES !</summary>
 
 
-⠀ ⠀ ⠀ ꗞ — My boundaries may be ridiculous, but they mostly come from bad past experiences, so please respect them. I do not expect you to change for my comfort, but I do ask for respect.
+⠀ ⠀ ⠀ ꗞ —  My boundaries may seem ridiculous to some, but they mostly come from bad past experiences. I decided to make them because some of my parts are getting overwhelmed by repeated situations. Please respect them. I do not expect you to change for my comfort, but I do ask for respect. It is my own responsibility to avoid interacting with people I dislike.
 
 ______________
 
@@ -367,7 +367,7 @@ ______________
 
 
 ꗞ —  Drama. I’m no interested in any online argument. Do not drag me into one. I’ll also not going check "call-out" posts. I find call-out posts stupid and pointless. While I understand that exposing genuinely bad behavior is important since public figures aren't always good people, most call-out posts are just absolute bullshit. I already expect some people to be bad, but these posts usually focus on stupid things and just turn into a bunch of petty gossip or people arguing over a minor disagreement, etc, etc. Showing their username and everything while claiming "do not harass this person." Is just a poor excuse. 
-I do stay away from drama as much as possible and I do rarely get involved.  I always prefer to look at both sides of an issue to form my own opinion before making up my mind. Thats all.
+I have also noticed that most call-out culture can't handle serious topics anyway. I stay away from drama as much as possible and rarely get involved. I always prefer to look at both sides of an issue to form my own opinion before making up my mind. That's all.
 
 
 
@@ -395,6 +395,10 @@ I do stay away from drama as much as possible and I do rarely get involved.  I a
  <details>
 <summary>THIN ICES. NOT A DNI!</summary>
 
+My boundaries may seem ridiculous to some, but they mostly come from bad past experiences. I decided to make them because some of my parts are getting overwhelmed by repeated situations. Please respect them. I do not expect you to change for my comfort, but I do ask for respect. It is my own responsibility to avoid interacting with people I dislike.
+
+____
+
 ☆ Invincible , Craig fans, Jason Todd/Batfam fans and Eddsworld fans unless friends.
 
 ☆ Creek, Jayroy, & Damijon shippers
@@ -413,7 +417,7 @@ I do stay away from drama as much as possible and I do rarely get involved.  I a
 
 
 
-⠀ ⠀ ⠀ ꗞ — My boundaries may be ridiculous, but they mostly come from bad past experiences, so please respect them. I do not expect you to change for my comfort, but I do ask for respect. It is my own responsibility to avoid interacting with people I dislike.
+⠀ ⠀ ⠀ ꗞ — My boundaries may seem ridiculous to some, but they mostly come from bad past experiences. I decided to make them because some of my parts are getting overwhelmed by repeated situations. Please respect them. I do not expect you to change for my comfort, but I do ask for respect. It is my own responsibility to avoid interacting with people I dislike.
 
 ____________
 
