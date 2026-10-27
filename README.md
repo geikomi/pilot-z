@@ -445,7 +445,7 @@ ____________
 ________________
 
 
-☆ If i sound rude please let me know!
+☆ I have a hard time expressing my emotions clearly. If I ever come off as rude, please let me know!
 
 ☆ If I am being too much or overshare and if you don’t like that let me know! I also change my intro most of time bec im bored or maybe I said too much.😭
 
