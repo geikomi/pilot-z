@@ -444,7 +444,7 @@ ____________
 <summary> ABOUT ME & BEFORE YOU INTERACT![ You do not have to read all of them since its a lot. ] Be warned.. I yap a lot. !</summary>
 
 
-⠀⠀ ⠀ ⠀⠀⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ꗞ — My boundaries may be ridiculous, but they mostly come from bad past experiences, so please respect them. I do not expect you to change for my comfort, but I do ask for respect. 
+⠀⠀ ⠀ ⠀⠀⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ꗞ —  My boundaries may seem ridiculous to some, but they mostly come from bad past experiences. I decided to make them because some of my parts are getting overwhelmed by repeated situations. Please respect them. I do not expect you to change for my comfort, but I do ask for respect. It is my own responsibility to avoid interacting with people I dislike.
 I do believe ppl should be themselves 
 
 ________________
