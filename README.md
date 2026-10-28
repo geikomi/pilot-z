@@ -145,7 +145,7 @@ fictotypes ;
   
 ★ Michael de santa . Fullkin/ID — doubles? IWEC.
   
-☆  Hal Jordan . Fullfic/IRL - doubles? DNI
+☆  Hal Jordan . IRL - doubles? DNI
  
 
 ☆  Two face . Fullfic/ID - doubles? DNI
