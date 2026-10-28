@@ -248,7 +248,7 @@ Other alterhumans;
 
 ★ favorite color ; green, red, yellow, orange, 00b4ac, and purple!
 
-★ action movies/shows. Real steel, Teen wolf, Umbrella Academy, good omens, and more.
+★ movies/shows. RoboCop, Real steel, Teen wolf, Umbrella Academy, good omens, and more.
 
 ★ animated series/movies. Batman 2004, Green lantern animated, Transformers animated, inside out, villainous, bob’s burgers, Moral Orel, the brave and the bold, futurama, kipo and the age of wonderbeast, aqua teen hunger force and more.
 
