@@ -536,8 +536,6 @@ I apologize very often, and I also find it hard to say no or set boundaries for 
 
  ☆ — I struggle with social cues. Sometimes I don't think before I speak. If I ever say something incorrect or something that could be offensive in any way, tell me! I will correct myself and then apologize. Don't be afraid to point it out to me as I said, I’m not afraid of my own mistakes 
 
- — I sometimes get clingy to the people, I feel comfortable with, and I end up being annoying. If you don't like that, tell me.
-
 
 </details>
 
