@@ -250,7 +250,7 @@ Other alterhumans;
 
 ★ movies/series. RoboCop, Real steel, Teen wolf, Umbrella Academy, good omens, and more.
 
-★ animated series/movies. Batman 2004, Green lantern animated, Transformers animated, inside out, villainous, bob’s burgers, Moral Orel, The wild robot, the brave and the bold, futurama, kipo and the age of wonderbeast, aqua teen hunger force and more.
+★ animated series/movies. Batman 2004, Green lantern animated, Transformers animated, inside out, villainous, bob’s burgers, Moral Orel, The wild robot, the brave and the bold, Haunted hotel, futurama, kipo and the age of wonderbeast, aqua teen hunger force and more.
 
 ★ all animals & plants! I love watching nature videos & wildlife.
 
