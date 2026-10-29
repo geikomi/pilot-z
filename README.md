@@ -71,9 +71,11 @@ $${\color{#EFB6C8} \  (˶ˆᗜˆ˵) \ INTRODUCTION \  ! ! \ 𖥻.ᐟ ׁ  \ : }$$
       ⠀ <img 
        src="https://github.com/pilot-z/pilot-z/blob/026836c3978b60a21a78495c6eb15d9226c7e737/Untitled393_20261023152828.png" width="9%"> — Autism & ADHD
 
-
- 
+⠀⠀ ⠀ ⠀ ⠀⠀𐂂⠀ --⠀self taught artist 
+⠀⠀ ⠀ ⠀⠀  ⠀ here’s my arts’
+ [art gallery](strawpage6767677)
 ⠀⠀ <details> 
+
 ⠀⠀⠀ ⠀ <summary> 𐂯 </summary>
 
 ⠀⠀⠀⠀   
